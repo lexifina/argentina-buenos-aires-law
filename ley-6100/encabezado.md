@@ -1,0 +1,4 @@
+LEY 6100
+Expropiación del inmueble ocupado por la Escuela 3 de Junín.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
