@@ -1,0 +1,1 @@
+ARTICULO 16°: De acuerdo con lo establecido en los arts. 206, 210, 211 y 217 del Código de Minería, para los socavones, pesos cuarenta ($40) por año, además del que corresponda por cada mina que el concesionario adquiere conforme con lo dispuesto por los arts. 215 y 216.

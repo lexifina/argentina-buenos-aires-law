@@ -1,0 +1,7 @@
+ARTICULO 6°: Quedan excluidas del régimen de la presente ley las actividades vinculadas a:
+a) Hidrocarburos líquidos y gaseosos.
+b) El proceso industrial de fabricación de cemento a partir de la calcinación.
+c ) El proceso industrial de fabricación de cerámicas.
+d ) Las arenas, canto rodado y piedra partida, destinadas a la industria de la construcción.
+CAPITULO IV
+TRATAMIENTO FISCAL DE LAS INVERSIONES
