@@ -1,0 +1,1 @@
+ARTÍCULO 1.- Téngase por Ley de la Provincia la sanción legislativa "acordando subsidio al Hospital Vecinal de Villa Porvenir, de Avellaneda, para adquisición de equipo de rayos X", que el Honorable Senado sancionó definitivamente el día 30 de Octubre próximo pasado.
