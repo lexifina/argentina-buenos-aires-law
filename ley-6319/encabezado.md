@@ -1,0 +1,5 @@
+LEY 6319
+Acordando prestamos de $ 8.224.500 a “COARPLAT”, Ltda. Cooperativa de Trabajo y Producción.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES, SANCIONAN CON FUERZA DE
+LEY
