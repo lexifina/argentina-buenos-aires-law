@@ -1,0 +1,4 @@
+LEY 6104
+Construcción de un edificio para la Escuela 33, de Bolívar.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
