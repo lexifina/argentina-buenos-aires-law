@@ -1,0 +1,1 @@
+ARTICULO 1º: Autorízase al Ministerio de Economía a retener, a partir de la fecha del presente, de la participación correspondiente a las Municipalidades en el régimen de la Ley 10559 y sus modificatorias hasta un total de pesos treinta millones ($ 30.000.000) a los fines de atender erogaciones con incidencia plena en los Municipios y/o a la promoción directa de la producción.
