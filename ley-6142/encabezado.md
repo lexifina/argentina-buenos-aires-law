@@ -1,0 +1,4 @@
+LEY 6142
+Expropiación del inmueble ocupado por la Escuela 2 de Berisso.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
