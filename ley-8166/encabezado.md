@@ -1,0 +1,4 @@
+LEY 8166
+Agregando artículo a la Ley 5456 (Creación de la Caja de Pensiones Sociales).
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
