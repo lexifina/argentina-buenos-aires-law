@@ -1,0 +1,4 @@
+LEY 6874
+Expropiación terreno en el partido de San Pedro, para Centro Cívico.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
