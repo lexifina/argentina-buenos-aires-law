@@ -1,0 +1,5 @@
+LEY 6871
+Creación de Escuela Técnica de Capacitación en la ciudad de Junín.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES, SANCIONAN CON FUERZA DE
+LEY
