@@ -1,0 +1,4 @@
+LEY 6665
+Acordando suma a la Sociedad Argentina de Gastroenterología.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
