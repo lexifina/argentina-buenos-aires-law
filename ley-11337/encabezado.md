@@ -1,0 +1,4 @@
+LEY 11337
+Nota: Por Ley 11555 se prorroga por 2 años el cumplimiento de ésta.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
