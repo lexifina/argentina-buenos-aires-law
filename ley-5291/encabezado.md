@@ -1,0 +1,4 @@
+LEY 5291
+Erección de un monumento al Gaucho en la ciudad de La Plata.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
