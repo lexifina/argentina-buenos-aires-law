@@ -1,0 +1,4 @@
+LEY 7114
+Se acuerda pensión graciable a la señora Isabel Cóceres de Freyre.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
