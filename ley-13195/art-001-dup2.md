@@ -1,0 +1,1 @@
+Artículo 1º.- Obsérvase en los apartados tres y cuatro del proyecto de ley al que hace referencia el Visto del presente, sancionado por la Honorable Legislatura con fecha 22 de abril del corriente año, la palabra “exclusiva”.
