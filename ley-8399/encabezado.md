@@ -1,0 +1,5 @@
+LEY 8399
+Sueldo básico mensual referido en el artículo 62 del Decreto-Ley 7878/72.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES, SANCIONAN CON FUERZA DE
+LEY
