@@ -1,0 +1,1 @@
+ARTÍCULO 1.- El Ministerio de Obras Públicas por sí y con conocimiento de la Administración General de Puertos, o a solicitud de la misma, realizará las inspecciones técnicas necesarias en las zonas aludidas, a fin de comprobar las condiciones en que se realizan las descargas de líquidos residuales que efectúan los establecimientos emplazados en dichas zonas.
