@@ -1,0 +1,4 @@
+LEY 8097
+Declarando ciudad a la localidad de Coronel Brandsen.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
