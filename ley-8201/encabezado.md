@@ -1,0 +1,4 @@
+LEY 8201
+Elevando a la categoría de Ciudad al pueblo de Rivadavia.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
