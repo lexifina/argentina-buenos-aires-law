@@ -1,0 +1,5 @@
+LEY 6830
+Terrenos para viviendas en Vicente López. Modifícase la Ley 6357.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES, SANCIONAN CON FUERZA DE
+LEY
