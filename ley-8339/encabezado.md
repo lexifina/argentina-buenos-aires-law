@@ -1,0 +1,6 @@
+LEY 8339
+Modificando el artículo 1º del Decreto-Ley 4570/957.
+NOTA: El Dec-Ley 4570/57 se encuentra Derogado por Ley 9319.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES, SANCIONAN CON FUERZA DE
+LEY:
