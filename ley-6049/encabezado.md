@@ -1,0 +1,4 @@
+LEY 6049
+Donación de una fracción de terreno al Obispado de Mar del Plata.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
