@@ -1,0 +1,4 @@
+LEY 6125
+Expropiación de un inmueble para hotel en Olavarría.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
