@@ -1,0 +1,6 @@
+DEROGADA POR LEY 11653
+LEY 8086
+Modificaciones de la Ley 7718 (Ley de Procedimiento de los Tribunales del Trabajo).
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA
+DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
