@@ -1,0 +1,5 @@
+LEY 8541
+Concediendo pensión especial al señor Reynaldo Angel Romano.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES, SANCIONAN CON FUERZA DE
+LEY
