@@ -1,0 +1,1 @@
+ARTÍCULO 2°: A los efectos de la ratificación a que se refiere el artículo anterior ténganse por modificados, con ese solo alcance y en los términos que establecen las cláusulas primera y segunda del acuerdo, los títulos XVIII y XIX del Código de Minería.
