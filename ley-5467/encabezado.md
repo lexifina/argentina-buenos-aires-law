@@ -1,0 +1,4 @@
+LEY 5467
+Subsidio a la Sociedad Popular de Cultura de la ciudad de Juárez.
+EL SENADO Y LA CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
