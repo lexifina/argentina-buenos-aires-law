@@ -1,0 +1,1 @@
+Art. 1°: Obsérvase en el artículo 1º la expresión “(T.O. por Decreto 1.237/95)” del proyecto de ley sancionado por la Honorable Legislatura, con fecha veintisiete de noviembre del corriente año al que hace referencia el visto del presente.
