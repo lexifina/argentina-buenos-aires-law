@@ -1,0 +1,5 @@
+LEY 8324
+Elevando a la categoría de ciudad a la localidad de El Palomar
+EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES SANCIONAN CON FUERZA DE
+LEY
