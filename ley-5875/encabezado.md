@@ -1,0 +1,6 @@
+DEROGADA POR LEY 6266
+LEY 5875
+Modificando el artículo 92 del Decreto-Ley 6769/58 que reformó la Ley Orgánica de las Municipalidades
+EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES,
+SANCIONAN CON FUERZA DE
+LEY
