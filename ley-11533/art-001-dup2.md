@@ -1,0 +1,1 @@
+ARTÍCULO 1°: Apruébase el Convenio firmado el día 2 de noviembre de 1992 entre el Gobierno Provincial, el Estado Nacional y GAS DEL ESTADO SOCIEDAD DEL ESTADO, que como Anexo I forma parte del presente.

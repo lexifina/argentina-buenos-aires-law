@@ -1,0 +1,1 @@
+ARTÍCULO 2°: Establécese que los recursos que ingresen como consecuencia de lo dispuesto en la cláusula tercera, párrafos segundo y tercero, del principal del convenio que se aprueba, se afectarán a una cuenta especial cuyo destino y funcionamiento dispondrá reglamentariamente el Poder Ejecutivo;
