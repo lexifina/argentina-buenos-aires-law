@@ -1,0 +1,5 @@
+LEY 8150
+Modificando el artículo 92 del Decreto-Ley 6769/958 (Orgánica de las Municipalidades).
+EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE
+BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
