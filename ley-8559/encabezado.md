@@ -1,0 +1,6 @@
+DEROGADA POR LEY 8690
+LEY 8559
+Acordando pensión graciable a la señora Amalia Mármol Vda. de Chaves.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES, SANCIONAN CON FUERZA DE
+LEY
