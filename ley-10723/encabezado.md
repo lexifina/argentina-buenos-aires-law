@@ -1,0 +1,5 @@
+LEY 10723
+EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES SANCIONAN CON FUERZA DE
+LEY
+NOTA: Ver artículo 33° de la ley 10.729 (Presupuesto Administración de la Provincia año 1988)
