@@ -1,0 +1,1 @@
+ARTÍCULO 2.- La Comisión Nacional de Alfabetización y Edificación Escolar, dispondrá, para la ejecución del Programa, de los fondos que fueren necesarios en razón de los centros de alfabetización que se creen en la Provincia de Buenos Aires.
