@@ -1,0 +1,4 @@
+LEY 8193
+Recursos materiales del sector salud en el ámbito público.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
