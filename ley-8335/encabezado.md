@@ -1,0 +1,4 @@
+LEY 8335
+Declarando ciudad a la localidad de Villa Elisa, Partido de La Plata.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
