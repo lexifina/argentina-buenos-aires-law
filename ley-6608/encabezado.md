@@ -1,0 +1,5 @@
+LEY 6608
+Modificando el artículo 4º de la Ley 5289.
+Departamento Gobierno
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
