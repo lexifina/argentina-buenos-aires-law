@@ -1,0 +1,4 @@
+LEY 8519
+Excluyendo fracciones de la donación dispuesta por Ley 8245.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
