@@ -1,0 +1,5 @@
+LEY 5062
+Colecciones integrantes del Museo Gnecco, adquisición.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES, SANCIONAN CON FUERZA DE
+LEY
