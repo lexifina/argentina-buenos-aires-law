@@ -1,0 +1,4 @@
+LEY 6019
+Presupuesto del Honorable Senado y de la Legislatura para el año 1959.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY:
