@@ -1,0 +1,5 @@
+LEY 5013
+“Historia Constitucional de la Provincia de Buenos Aires”.
+EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES, SANCIONAN CON FUERZA DE
+LEY
