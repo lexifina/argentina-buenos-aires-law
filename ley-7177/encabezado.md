@@ -1,0 +1,4 @@
+LEY 7177
+Modificación del artículo 4º de la Ley 5708 (General de Expropiaciones).
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
