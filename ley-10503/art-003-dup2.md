@@ -1,0 +1,1 @@
+ARTICULO 3°: Cúmplase, comuníquese, publíquese, dése al Registro y Boletín Oficial y Archívese.-
