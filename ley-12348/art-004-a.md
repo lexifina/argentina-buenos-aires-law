@@ -1,0 +1,1 @@
+Art. 4º - A los fines de la presente Ley, y en relación al precio-costo de la expropiación, deberá tenerse particularmente presente que la tasación administrativa comprenderá exclusivamente el valor venal de la tierra.
