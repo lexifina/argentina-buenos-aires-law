@@ -1,0 +1,6 @@
+LEY 5934
+Declarando ciudad al pueblo de Pigüe
+Departamento de Gobierno.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES, SANCIONAN CON FUERZA DE
+LEY
