@@ -1,0 +1,4 @@
+LEY 5437
+Creación de un Taller de Impresiones en el Ministerio de Educación.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY:
