@@ -1,0 +1,5 @@
+LEY 8151
+Elevando a la categoría de ciudad al actual pueblo de Navarro
+EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES, SANCIONAN CON FUERZA DE
+LEY
