@@ -1,0 +1,5 @@
+LEY 5453
+Socorro a las víctimas del terremoto del Ecuador.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES, SANCIONAN CON FUERZA DE
+LEY:
