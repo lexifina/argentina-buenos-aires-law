@@ -1,0 +1,1 @@
+ARTÍCULO 1.- Apruébase el Convenio de transferencia del Elevador Terminal de San Nicolás, suscripto con fecha 19 de abril de 1994 entre el señor Liquidador de la Junta Nacional de Granos y el señor Ministro de Obras y Servicios Públicos de la Provincia de Buenos Aires, cuyo texto, como Anexo I, forma parte integrante del presente.
