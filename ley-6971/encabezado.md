@@ -1,0 +1,5 @@
+LEY 6971
+Ampliación del crédito diferido a la Dirección de Arquitectura.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES, SANCIONAN CON FUERZA DE
+LEY
