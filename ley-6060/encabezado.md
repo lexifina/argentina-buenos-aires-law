@@ -1,0 +1,4 @@
+LEY 6060
+Donación de terreno al “Yacht Club Buenos Aires” en San Fernando.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
