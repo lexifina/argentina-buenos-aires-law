@@ -1,0 +1,5 @@
+LEY 5349
+Modificación de la Ley 4793, Carta Orgánica del Banco de la Provincia.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES, SANCIONAN CON FUERZA DE
+LEY
