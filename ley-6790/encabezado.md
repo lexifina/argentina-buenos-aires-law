@@ -1,0 +1,4 @@
+LEY 6790
+Donación de terreno para cámara de desagües en Campana.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
