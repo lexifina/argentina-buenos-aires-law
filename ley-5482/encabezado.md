@@ -1,0 +1,4 @@
+LEY 5482
+Obras de salubridad y de desagües urbanos y suburbanos.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY:
