@@ -1,0 +1,5 @@
+LEY 5454
+Subsidio a la Sociedad Francesa de Beneficencia, de La Plata.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES, SANCIONAN CON FUERZA DE
+LEY:
