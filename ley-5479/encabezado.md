@@ -1,0 +1,4 @@
+LEY 5479
+Subsidio al Patronato de Leprosos de la República Argentina.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LO PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY:
