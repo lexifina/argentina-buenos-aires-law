@@ -1,0 +1,4 @@
+LEY 6852
+Transferencias de créditos dentro del Anexo VII, Sección 2ª, del Presupuesto 1964.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
