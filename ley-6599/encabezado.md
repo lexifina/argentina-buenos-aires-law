@@ -1,0 +1,4 @@
+LEY 6599
+Declarando ciudad al actual pueblo de General Rodríguez.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY:
