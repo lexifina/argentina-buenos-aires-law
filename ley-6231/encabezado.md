@@ -1,0 +1,4 @@
+LEY 6231
+Modificación de la Ley 6065, de creación del Partido de Tres de Febrero.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
