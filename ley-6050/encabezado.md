@@ -1,0 +1,5 @@
+DEROGADA POR LEY 9434
+LEY 6050
+Carta Orgánica del Banco de la Provincia de Buenos Aires. Modificación de artículos.
+EL SENADO Y CÁMARADE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
