@@ -1,0 +1,4 @@
+LEY 6802
+Declárase ciudad al pueblo de Ramos Mejía (Partido de La Matanza).
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
