@@ -1,0 +1,4 @@
+LEY 8402
+Suprímense y agréganse artículos a la Ley 5445 y derógase la Ley 7537.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
