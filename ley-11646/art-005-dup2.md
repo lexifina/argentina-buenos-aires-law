@@ -1,0 +1,1 @@
+ARTÍCULO 5°: Prorrógase hasta el 1 de abril de 1996 el plazo para el cumplimiento de las cláusulas del pacto federal para el empleo, la producción y el crecimiento relacionadas exclusivamente a materia tributaria, y cuyo vencimiento hubiera operado u operase con anterioridad a dicha fecha, que estuvieren pendientes de implementación.
