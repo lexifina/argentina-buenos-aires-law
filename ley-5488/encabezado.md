@@ -1,0 +1,4 @@
+LEY 5488
+Subsidio a la “Asociación de la Inmaculada”, de La Plata.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY:
