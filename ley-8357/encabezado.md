@@ -1,0 +1,5 @@
+DEROGADA POR LEY 9094
+LEY 8357
+Modificando el artículo 28 inciso 5º del Decreto-Ley 6769/58 (Ley Orgánica de la Municipalidades).
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
