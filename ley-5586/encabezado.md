@@ -1,0 +1,4 @@
+LEY 5586
+Declaración de ciudad del pueblo de Arrecifes (Bartolomé Mitre).
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY:
