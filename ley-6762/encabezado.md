@@ -1,0 +1,5 @@
+LEY 6762
+Expropiación en General San Martín, para la Escuela 45, en Villa Humberto.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES, SANCIONAN CON FUERZA DE
+LEY
