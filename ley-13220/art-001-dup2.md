@@ -1,0 +1,1 @@
+Artículo 1°: Declárase de Interés Público y Sujetas a Expropiación a los inmuebles designados catastralmente como Circunscripción I, Sección C, Manzana 212, 213, 214 y 85p, de la ciudad de Carmen de Patagones.

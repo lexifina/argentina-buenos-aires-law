@@ -1,0 +1,1 @@
+Artículo 3°: Los bienes expropiados pasarán a propiedad municipal y se otorgará tenencia precaria de los sectores que actualmente ocupan, a las familias que figuren en el relevamiento elaborado por la Dirección de Acción Social.
