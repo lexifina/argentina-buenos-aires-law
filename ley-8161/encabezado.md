@@ -1,0 +1,5 @@
+LEY 8161
+Adhesión de la Provincia a la Ley 20.633 (Régimen de Coparticipación de Impuestos).
+EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA
+DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
