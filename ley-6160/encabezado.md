@@ -1,0 +1,4 @@
+LEY 6160
+Subvención al Hospital "Juana G. de Miguens", de Urdampil1eta, Bolívar.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
