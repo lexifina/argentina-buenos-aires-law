@@ -1,0 +1,5 @@
+LEY 5382
+Sueldo Anual Complementario para el Personal de la Legislatura.
+EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES, SANCIONAN CON FUERZA DE
+LEY
