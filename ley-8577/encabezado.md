@@ -1,0 +1,5 @@
+LEY 8577
+Modificando el artículo 2° e incorporando nuevo en la Ley 8320.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES, SANCIONAN CON FUERZA DE
+LEY
