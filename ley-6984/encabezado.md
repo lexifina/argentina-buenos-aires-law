@@ -1,0 +1,5 @@
+LEY 6984
+Subsidio a la Sociedad de Bomberos Voluntario de Roque Pérez.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES, SANCIONAN CON FUERZA DE
+LEY
