@@ -1,0 +1,4 @@
+LEY 7134
+Restableciendo la vigencia del artículo 1º inciso 2º de la Ley 6530.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
