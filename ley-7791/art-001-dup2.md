@@ -1,0 +1,1 @@
+ARTICULO 1.- Prorrógase en todas sus partes el convenio suscrito entre ambas instituciones con fecha veintinueve de noviembre de mil novecientos sesenta, sobre delimitación de jurisdicciones para la fiscalización de las aguas servidas que se vuelcan a cuerpos de aguas receptores.

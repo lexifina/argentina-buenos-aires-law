@@ -1,0 +1,2 @@
+ARTICULO 2.- Esta prórroga tendrá vigencia durante el término de tres (3) años a partir del veintinueve de noviembre de mil novecientos setenta y uno, fecha en que se opera el vencimiento de la prorroga convenida el 3 de mayo de mil novecientos sesenta y ocho.
+En prueba de conformidad suscriben las partes el presente documento, en dos ejemplares de un mismo tenor y a un solo efecto, en la ciudad de Buenos Aires, a los catorce días del mes de junio del año mil novecientos setenta y uno.
