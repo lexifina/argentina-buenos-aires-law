@@ -1,0 +1,4 @@
+LEY 7122
+Modifícanse los artículos 20 y 21 de la Ley 5827, Orgánica del Poder Judicial.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
