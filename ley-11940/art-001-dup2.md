@@ -1,0 +1,1 @@
+ARTICULO 1°: Apruébase el Convenio suscripto entre el Poder Ejecutivo Nacional y la Provincia de Buenos Aires, en fecha 25 de noviembre de 1.996, -por medio del cuál se resuelve implementar la Zona Franca creada en el Puerto de Bahía Blanca por ley 84 del 9 de junio de 1.856- cuyo texto, como anexo, forma parte integrante del presente.
