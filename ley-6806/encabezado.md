@@ -1,0 +1,5 @@
+LEY 6806
+Restitución de inmueble a la Municipalidad de Colón.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES, SANCIONAN CON FUERZA DE
+LEY
