@@ -1,0 +1,4 @@
+LEY 6043
+Monumento al Cacique Ignacio Coliqueo y su Tribu en General Viamonte.
+EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
