@@ -1,0 +1,5 @@
+LEY 6648
+Compensando a quienes persiguen a los loros y cotorras.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES, SANCIONAN CON FUERZA DE
+LEY
