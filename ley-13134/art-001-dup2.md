@@ -1,0 +1,1 @@
+Artículo 1º - Obsérvase del artículo 2 la expresión: ”....correspondiente al Ejercicio 2002” del proyecto de ley sancionado por la Honorable Legislatura, con fecha 26 de noviembre de 2003, al que hace referencia el Visto del presente.
