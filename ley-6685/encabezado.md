@@ -1,0 +1,4 @@
+LEY 6685
+Acordando subsidio al Club de Planeadores “Alas” de Rauch.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
