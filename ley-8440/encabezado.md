@@ -1,0 +1,4 @@
+LEY 8440
+Modificando la Ley Orgánica de las Municipalidades (Artículos 133, 151, 152 y 183), (Decreto-Ley 6769/958).
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY:
