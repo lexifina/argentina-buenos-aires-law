@@ -1,0 +1,4 @@
+LEY 4443
+*Ver Ley 6575. Exceptúa lo dispuesto en el art. 2 de la presente.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
