@@ -1,0 +1,5 @@
+LEY 6987
+Subsidio a la Sociedad Cooperadora de la Escuela 89 de La Plata.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES, SANCIONAN CON FUERZA DE
+LEY
