@@ -1,0 +1,4 @@
+LEY 6825
+Denuncia obligatoria y tratamiento de toxicómanos
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
