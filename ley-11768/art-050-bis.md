@@ -1,0 +1,1 @@
+Artículo 50 bis: Los ciclistas estarán obligados a circular por las pistas para bicicletas cuando las hubiere. De no ser así y deban hacerlo por la calzada, circularán en una sola fila y nunca a más de dos en fondo sobre la carretera. Está prohibido a los ciclistas hacerse remolcar por un vehículo.
