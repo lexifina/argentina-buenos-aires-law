@@ -1,0 +1,5 @@
+LEY 4638
+Embargo de sueldos, jubilaciones, pensiones y salarios.
+EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES, SANCIONAN CON FUERZA DE
+LEY
