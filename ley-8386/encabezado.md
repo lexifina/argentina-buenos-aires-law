@@ -1,0 +1,5 @@
+DEROGADA POR LEY 10562
+LEY 8386
+Donando fracción de tierra al Sindicato de Trabajadores Municipales de Chascomús.
+SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
