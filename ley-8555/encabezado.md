@@ -1,0 +1,5 @@
+LEY 8555
+Sustitución de partidas en el Presupuesto General, Ejercicio 1975.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES, SANCIONAN CON FUERZA DE
+LEY
