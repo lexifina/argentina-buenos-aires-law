@@ -1,0 +1,5 @@
+DEROGADA POR LEY 8674
+LEY 8588
+Declarando de utilidad pública fracciones de tierra en San Nicolás.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
