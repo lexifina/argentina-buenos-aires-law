@@ -1,0 +1,1 @@
+Artículo 2.- Los docentes a quienes se les otorgue el beneficio del artículo anterior se desempeñarán en cargos vacantes que resultaren de las plantas orgánico-funcionales del mismo nivel, como también en las vacantes que se originen por cambios de funciones, por pedidos de licencia por todo el período lectivo y por traslados provisorios concedidos.
