@@ -1,0 +1,5 @@
+LEY 6077
+Expropiación de terreno para plaza en Empalme San Vicente.
+EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES,
+SANCIONAN CON FUERZA DE
+LEY
