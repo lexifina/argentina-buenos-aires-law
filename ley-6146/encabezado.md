@@ -1,0 +1,4 @@
+LEY 6146
+Expropiación de un inmueble para la Escuela 17 de Chascomús.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
