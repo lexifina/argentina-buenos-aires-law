@@ -1,0 +1,5 @@
+LEY 6996
+Prosecución y terminación de obras del Hospital de Vicente.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES, SANCIONAN CON FUERZA DE
+LEY
