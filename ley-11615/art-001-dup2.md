@@ -1,0 +1,1 @@
+ARTICULO 1°: Apruébase el Contrato de Transferencia de Astilleros y Fábricas Navales del Estado S.A. (AFNE S.A.), celebrado entre el Estado Nacional y la Provincia de Buenos Aires, con fecha 26 de agosto de 1993, el cual como Anexo I forma parte integrante del presente.

@@ -1,0 +1,1 @@
+ARTICULO 1°: El Estado Nacional - Ministerio de Defensa, transfiere a la Provincia de Buenos Aires y esta acepta, el total del personal, los activos en las condiciones "donde están y como están" y los contratos con terceros en curso de ejecución, correspondientes a Astilleros y Fábricas Navales del Estado S.A., (AFNE S.A.), las condiciones que se detallan en el presente.

@@ -1,0 +1,1 @@
+ARTICULO 10°: Para el supuesto de que se reemplace la Obra Social DIBA, la Provincia de Buenos Aires se compromete con respecto a la totalidad del personal que se transfiere, a cubrirlo con una Obra Social que preste a los mismos, similares beneficios y prestaciones.

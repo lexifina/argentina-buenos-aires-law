@@ -1,0 +1,1 @@
+ARTICULO 6°: El Señor Ministro de Defensa y el Señor Ministro de Economía y Obras y Servicios Públicos, en virtud de lo dispuesto por las normas legales citadas en el encabezamiento, por el Decreto 1.105/89 y las facultades que le fueran delegadas por el Poder Ejecutivo Nacional, disponen la remisión de todas las deudas de AFNE S.A., con el Estado Nacional.

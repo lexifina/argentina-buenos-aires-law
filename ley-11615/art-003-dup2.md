@@ -1,0 +1,1 @@
+ARTICULO 3°: Declárase a Astilleros y Fábricas Navales del Estado S.A. (AFNE S.A.) en estado de disolución y liquidación, facultándose a los Señores Ministros de Economía y Obras y Servicios Públicos y de Defensa a designar en forma conjunta un Liquidador y si fuere necesario un Subliquidador.
