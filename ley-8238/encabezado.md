@@ -1,0 +1,4 @@
+LEY 8238
+Convalidando lo resuelto por el Poder Ejecutivo en el Decreto 3068/74.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
