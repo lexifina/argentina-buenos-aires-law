@@ -1,0 +1,4 @@
+LEY 8539
+Modificando el artículo 32 bis del Código de Ejecución Penal – Ley 5619.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
