@@ -1,0 +1,5 @@
+DEROGADA POR LEY 9297
+LEY 8506
+Eximiendo al Estado Nacional del pago de las retribuciones previstas en la Ley 7169.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
