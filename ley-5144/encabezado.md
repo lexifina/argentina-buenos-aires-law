@@ -1,0 +1,6 @@
+LEY 5144
+LA PLATA, 28 de AGOSTO de 1947.
+Subsidio a la Comisión Pro Monumento al General San Martín, en Magdalena
+EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA
+DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
