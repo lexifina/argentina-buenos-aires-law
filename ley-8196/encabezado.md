@@ -1,0 +1,4 @@
+LEY 8196
+Otorgando subsidio al Colegio de Niñas de la Sagrada Familia de Lanús.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY:
