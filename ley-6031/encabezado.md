@@ -1,0 +1,4 @@
+LEY 6031
+NOTA: Ver Ley 8148, ref: transfiere definitivamente fracción de tierra.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
