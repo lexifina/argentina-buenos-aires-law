@@ -1,0 +1,1 @@
+ARTÍCULO 1.- Téngase por Ley de la Provincia, la sanción legislativa “autorizando inversión para construcción de obras de desagües pluviales y defensa contra inundaciones en los partidos de Tres de Febrero y General San Martín”, que el Honorable Senado sancionó definitivamente el día 30 de octubre próximo pasado.
