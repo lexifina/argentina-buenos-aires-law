@@ -1,0 +1,5 @@
+LEY 6683
+Acordando subsidio a la Municipalidad de Esteban Echeverría.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES, SANCIONAN CON FUERZA DE
+LEY
