@@ -1,0 +1,1 @@
+Artículo 5 bis.- Autorízase al Poder Ejecutivo a incrementar en hasta un cincuenta (50) por ciento, el monto del beneficio establecido en el artículo 5° a todo aquel beneficiario que acredite una incapacidad psicofísica que determine una disminución de su capacidad laboral, de acuerdo a los requisitos que establezca la reglamentación.
