@@ -1,0 +1,1 @@
+ARTICULO 1º.- Vétase en el inciso c) del artículo 2° del proyecto de ley sancionado por la Honorable Legislatura con fecha 14 de junio de 2006, al que hace referencia el Visto del presente, la frase “…declaratorias y de…”.
