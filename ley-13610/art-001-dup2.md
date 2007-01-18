@@ -1,0 +1,2 @@
+Artículo1.- Condónase la deuda por Impuesto Inmobiliario y de Obras Sanitarias de todos aquellos inmuebles que hubiesen sido regularizados en el marco del régimen establecido por la Ley Nacional 24.374.
+El beneficio dispuesto en el párrafo anterior comprenderá las deudas que hubieran vencido hasta la inscripción del acta notarial o de la escritura traslativa de dominio prevista en el artículo 6° incisos e) y h) de la Ley Nacional 24.374, respectivamente.”
