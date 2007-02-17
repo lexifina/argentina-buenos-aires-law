@@ -1,0 +1,1 @@
+Artículo 3º: El COFEMA será una persona jurídica de derecho público constituida por los estados que lo ratifiquen, el Gobierno Federal y las Provincias que adhieran con posterioridad y la Ciudad de Buenos Aires.
