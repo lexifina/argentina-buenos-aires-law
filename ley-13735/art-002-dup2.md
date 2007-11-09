@@ -1,0 +1,1 @@
+ARTICULO 2.- Aprobar el texto del Convenio de Préstamo a suscribirse para la ejecución del “APL 2” del Programa citado en el artículo 1°, denominado “Proyecto de Desarrollo de la Inversión Sustentable en Infraestructura de la Provincia de Buenos Aires – Fase II”, que forma parte integrante de la presente Ley como Apéndice 1.
