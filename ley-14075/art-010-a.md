@@ -1,0 +1,1 @@
+ARTÍCULO 10 - A los fines de la simplificación de los trámites necesarios para la obtención del uso de la “Marca”, será de aplicación lo establecido en la Ley 13.796, de “Trámite Único Simplificado” y sus normas reglamentarias.
