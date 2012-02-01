@@ -1,0 +1,4 @@
+LEY 14346
+NOJTA: Ver Ley 14566 que rectifica el último párrafo del art. 1 de la presente Ley.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
