@@ -1,0 +1,3 @@
+LEY 286
+Impuesto de abasto para 1860.
+EL SENADO Y CAMARA DE REPRESENTATES, ETC
