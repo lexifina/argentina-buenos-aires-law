@@ -1,0 +1,5 @@
+LEY 5305
+Modificación de la Ley 4672
+De Incompatibilidad en su artículo 3°
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
