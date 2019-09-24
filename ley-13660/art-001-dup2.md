@@ -1,0 +1,1 @@
+ARTICULO 1°. Observar en el Artículo 1º del proyecto de ley sancionado por la Honorable Legislatura con fecha 21 de marzo de 2007, al que hace referencia el Visto del presente, la expresión “…por precio de venta…”.
