@@ -1,0 +1,1 @@
+ARTICULO 2°: El presente ESTATUTO ESCALAFON asegurará la selección del personal más idóneo y la formación de cuadros permanentes de profesionales, técnicos, empleados y obreros especializados en los diferentes aspectos de la técnica vial.
