@@ -1,0 +1,4 @@
+LEY 12252
+NOTA: Por ley 12334 se prorroga por 180 días corridos la vigencia de la presente.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
