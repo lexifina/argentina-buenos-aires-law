@@ -1,0 +1,4 @@
+LEY 13.203
+Texto Actualizado con las modificaciones introducidas por la Ley 13284.-
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
