@@ -1,0 +1,4 @@
+LEY 11535
+NOTA: Ver Ley 14630 que establece Delimitación Jurisdiccional Terrestre del Puerto de Dock Sud.
+EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
