@@ -1,0 +1,1 @@
+Artículo 1.- Obsérvase en el artículo 1° la expresión: “T.O. Res. M.E. 173/99” del proyecto de ley sancionado por la Honorable Legislatura, con fecha 19 de agosto de 2004, al que hace referencia el Visto del presente.
