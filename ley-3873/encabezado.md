@@ -1,0 +1,4 @@
+LEY 3873
+Construcción de una Escuela de Artes y Oficios en Bragado.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
