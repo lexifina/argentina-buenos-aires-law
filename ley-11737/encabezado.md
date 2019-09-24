@@ -1,0 +1,9 @@
+LEY 11737
+NOTA:
+Ver Ley 12355 en su art. 46, ref: derogación.
+Ver Ley 12607 en su art.201 deroga los artículos 26 al 64 de la presente.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
+SECCIÓN PRIMERA
+TÍTULO I
+DE LOS MINISTERIOS
