@@ -1,0 +1,1 @@
+ARTICULO 1.- Obsérvase en el artículo 1 del proyecto de ley sancionado por la Honorable Legislatura con fecha quince de agosto del corriente año, al que hace referencia el Visto del presente, las expresiones "catastrales: Circunscripción II, Sección G, Chacra 607, Manzana 607 A, Parcela 2;".
