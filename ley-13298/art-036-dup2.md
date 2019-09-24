@@ -1,0 +1,7 @@
+ARTICULO 36.-
+36.1 Abandono del Programa
+En ningún caso una medida de protección especial ha de significar la privación de libertad ambulatoria del niño. (art 33)
+El cese de la medida proteccional por decisión unilateral del niño, no podrá ser sancionada bajo ningún criterio o concepto. En consecuencia queda expresamente prohibido a toda autoridad pública requerir medidas de coerción contra el niño por razón del abandono del programa.
+Ante el abandono de un niño de una medida de protección especial los directores de instituciones públicas o privadas, habrán de limitar su actuación a la solicitud de búsqueda de paradero ante la autoridad correspondiente y a la inmediata comunicación del abandono a la autoridad que dispuso la medida.
+En ningún caso podrá ordenarse un pedido de captura a través de organismos policiales contra un niño que no hubiere estado privado de libertad ambulatoria por orden del juez competente y en el marco de una causa por infracción al ordenamiento penal.
+En consecuencia, derógase en este acto toda normativa administrativa (en especial el Decreto 9102/74 Capítulo VII –Actuaciones y procedimientos especiales- Apartado B Inciso 4° “menores fugados del hogar o de lugares donde hubieren sido internados o extraviados” y/o texto ordenados posteriores) que se oponga a la presente, debiendo los organismos de seguridad modificar la normativa interna y las prácticas institucionales en este sentido.

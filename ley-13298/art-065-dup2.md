@@ -1,0 +1,7 @@
+ARTICULO 65.-
+65.1 El Ministerio de Desarrollo Humano establecerá en el plazo de 30 días la forma y los plazos dentro de los cuales recibirá la información y documentación relativa a los expedientes judiciales que actualmente corresponden a la competencia del Tribunal de Menores y que en el marco de la presente ley corresponderá a los Servicios Locales de Protección de Derechos.
+65.2 El Ministerio de Desarrollo Humano habrá de recibir para su intervención en forma exclusiva:
+1- La información y documentación referida a los expedientes judiciales de carácter asistencial de niños actualmente internados en Instituciones Oficiales y/o privadas en los que existe expresa conformidad de estos y/o de sus representantes legales sobre la medida proteccional oportunamente decidida, debiendo ello surgir en forma clara e indubitable de la propia documentación.
+2- La información y documentación referida a los expedientes judiciales donde los niños y sus familias se encuentren dentro de algún programa social.
+3- La información y documentación referida a los expedientes en los que actualmente se esté abordando la vulneración de derechos sociales, económicos y culturales en los que el niño se encuentre en el seno de su familia.
+65.3 La autoridad judicial competente, a la que corresponda su intervención en el resto de las causas en las que se haya ordenado la internación de un niño, podrá solicitar la intervención de los Servicios Locales de Protección de Derechos, a los efectos de analizar las estrategias de desinstitucionalización.

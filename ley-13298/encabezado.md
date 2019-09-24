@@ -1,0 +1,12 @@
+LEY 13298
+Texto Actualizado con las modificaciones introducidas por Ley 13634 y 14537.
+Ver Ley 13634, complementaria de la presente.
+Ver Ley 13803
+NOTA: Ver al pie de la presente Ley el Decreto Reglamentario N° 300/05.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
+DE LA PROMOCIÓN Y PROTECCIÓN INTEGRAL DE LOS DERECHOS DE LOS NIÑOS
+TITULO I
+PRINCIPIOS GENERALES
+CAPITULO UNICO
+OBJETO Y FINALIDAD
