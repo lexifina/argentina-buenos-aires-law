@@ -1,0 +1,1 @@
+Art. 1º.- Obsérvase en el artículo 1º del proyecto de ley sancionado por la Honorable legislatura, con fecha trece de noviembre del corriente año la expresión “constituyen la promoción de un cargo superior con estabilidad y”
