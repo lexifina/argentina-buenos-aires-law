@@ -1,0 +1,3 @@
+LEY 2997
+Subsidio María Rivadavia.
+EL SENADO Y CÁMARA DE DIPUTADOS, ETC.
