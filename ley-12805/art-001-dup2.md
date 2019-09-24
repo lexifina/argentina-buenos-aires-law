@@ -1,0 +1,1 @@
+Art. 1º - Obsérvase en el artículo 1º del proyecto de ley sancionado por la Honorable Legislatura con fecha 15 de noviembre de 2001, al que hace referencia el Visto del presente, las expresiones "(13,2 Kw)" y "de los órganos de control".
