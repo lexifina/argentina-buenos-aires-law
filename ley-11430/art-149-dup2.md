@@ -1,0 +1,1 @@
+ARTICULO 149°: Los gastos que erogue la puesta en vigencia del presente Código serán atendidos por Rentas Generales, con imputación a la presente ley, autorizándose al Poder Ejecutivo a reforzar las respectivas partidas de los organismos de aplicación en la cantidad que sea menester.

@@ -1,0 +1,1 @@
+ARTICULO 89 BIS.- (Artículo incorporado por Ley 13213) Las autoridades competentes deberán señalizar adecuadamente en zona rural, urbana, suburbana, ruta, carretera, semiautopista y/o autopista, la obligación de encendido permanente de las luces de alcance medio o baja, de conformidad a lo prescripto por el artículo 58° del presente Código.

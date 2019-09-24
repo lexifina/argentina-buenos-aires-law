@@ -1,0 +1,1 @@
+ARTICULO 148°: A los efectos de la implementación de lo dispuesto en los artículos 22°, 35°, 43°, 65° de la presente, el Poder Ejecutivo deberá adoptar el procedimiento establecido en el Título IV de la Ley 11.184 y Decreto 585/92 en su parte pertinente.
