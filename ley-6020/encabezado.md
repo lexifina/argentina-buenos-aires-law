@@ -1,0 +1,4 @@
+LEY 6020
+Presupuesto de la Honorable Cámara de Diputados para el año 1959.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY:
