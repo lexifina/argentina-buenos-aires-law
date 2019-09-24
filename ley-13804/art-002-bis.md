@@ -1,0 +1,1 @@
+ARTÍCULO 2 bis.- (Artículo incorporado por Ley 14752) La Dirección General de Cultura y Educación, con intervención del Consejo General de Cultura y Educación, diseñará una Guía Provincial de Trámites en Lengua de Señas Argentina, la que habrá de insertarse en los sitios Web de cada Organismo Público de la Provincia de Buenos Aires.
