@@ -1,0 +1,4 @@
+LEY 228
+Pensión a la viuda de Cornelio Zelaya.
+EL SENADO Y CÁMARA DE DIPUTADOS DEL ESTADO DE
+BUENOS AIRES, ETC.
