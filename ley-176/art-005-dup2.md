@@ -1,0 +1,1 @@
+ARTÍCULO 5.- Los Tribunales de Justicia y jueces de paz de la ciudad y campaña son inmediatamente responsables de cualquiera contravención que autoricen en la administración de justicia, en oposición a lo prevenido en el artículo 1", o de que no den cuenta a la autoridad.
