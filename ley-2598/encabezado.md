@@ -1,0 +1,3 @@
+LEY 2598
+Contribución Directa para 1897.
+EL SENADO Y CÁMARA DE DIPUTADOS, ETC.
