@@ -1,0 +1,1 @@
+Artículo 1º.- Vétanse los artículos 10, 11, 12 y 13 y los términos: " ... y su complementario artículo 13 de esta Ley" del artículo 14 del proyecto de ley sancionado por la Honorable Legislatura, con fecha 28 de mayo de 2003, al que hace referencia el Visto del presente.
