@@ -1,0 +1,3 @@
+LEY 3488
+Creación del Partido Roque Pérez
+EL SENADO Y CAMARA DE DIPUTADOS, ETC
