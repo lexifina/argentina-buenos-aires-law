@@ -1,0 +1,7 @@
+DEROGADA POR LEY 13661
+LEY 8085
+NORMAS DE PROCEDIMIENTO PARA EL
+ENJUICIAMIENTO DE MAGISTRADOS
+Texto Actualizado según T.O. por Decreto N° 4621/87 con las modificaciones posteriores introducidas por la Ley 11.967 y 13086.
+CAPITULO I
+DE LA LISTA DE LOS JURADOS
