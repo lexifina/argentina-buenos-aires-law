@@ -1,0 +1,1 @@
+ARTICULO 23 BIS.- (Artículo incorporado por la Ley 13085) Fíjase en la suma de veinte mil (20.000) pesos el monto a que se refiere el artículo 259° inciso 28) apartado b), e inciso 29) apartado b) del Código Fiscal -Ley 10397 (t.o. 1999).
