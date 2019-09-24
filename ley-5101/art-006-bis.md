@@ -1,0 +1,1 @@
+ARTÍCULO 6º BIS: (Texto incorporado por Ley 5452) El Poder Ejecutivo impartirá instrucciones al señor Fiscal de Estado, para que desista de los juicios de expropiación ya iniciados, debiendo proceder a la promoción de los nuevos cuando el Poder Ejecutivo lo estime oportuno, conforme a lo dispuesto en la presente Ley.
