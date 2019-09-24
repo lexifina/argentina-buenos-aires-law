@@ -1,0 +1,4 @@
+LEY 14247
+NOTA: La Ley 14355 prorroga por 60 días la excepción prevista en la presente Ley.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
