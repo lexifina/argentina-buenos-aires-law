@@ -1,0 +1,3 @@
+LEY 2565
+Sorteo de Escrutadores.
+EL SENADO Y CÁMARA DE DIPUTADOS, ETC.
