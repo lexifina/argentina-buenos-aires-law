@@ -1,0 +1,4 @@
+LEY 1986
+Subvención a la Biblioteca de Mercedes.
+EL SENADO Y CÁMARA DE DIPUTADOS DEL ESTADO
+DE BUENOS AIRES, ETC.
