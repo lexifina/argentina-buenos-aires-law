@@ -1,0 +1,2 @@
+Art. 17° bis - ( Incorporado por Ley 12.775) La base para el cálculo del descuento será por cargo o su equivalente en horas cátedra o módulos. Los docentes que ejerzan más de un cargo o su equivalente, agruparán de a dos los mismos, comenzando por el de mayor remuneración.
+Para el personal cuyo desempeño se limite al ejercicio de cargos jerárquicos, doble escolaridad, jornada completa, o dos cargos de base o su equivalente en horas cátedra y/o módulos, se calculará según planilla anexa que forma parte de la presente.
