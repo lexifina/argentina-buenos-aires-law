@@ -1,0 +1,1 @@
+ARTICULO 1°. Obsérvase en el artículo 4° del proyecto de Ley sancionado por la Honorable Legislatura con fecha 9 de agosto de 2006, al que hace referencia el Visto del presente, la siguiente expresión: “…, previa aceptación por parte de la Provincia de Buenos Aires”.
