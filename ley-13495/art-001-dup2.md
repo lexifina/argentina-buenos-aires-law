@@ -1,0 +1,1 @@
+ARTICULO 1º. Obsérvase el segundo párrafo de la modificación introducida al artículo 1° del Decreto Ley N° 10.087/83 en la redacción dada por el proyecto de Ley sancionado por la Honorable Legislatura con fecha 5 de julio de 2006, al que hace referencia el Visto del presente.
