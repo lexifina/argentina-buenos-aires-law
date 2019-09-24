@@ -1,0 +1,1 @@
+ARTICULO 1°. Observar en el artículo 5º primer y segundo párrafo del proyecto de Ley sancionado por la Honorable Legislatura con fecha 8 de noviembre del año 2006, al que hace referencia el Visto del presente la frase o de la sociedad civil...”.
