@@ -1,0 +1,4 @@
+LEY 4509
+Texto Actualizado con las modificaciones introducidas por Ley 4715.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
