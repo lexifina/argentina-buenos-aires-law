@@ -1,0 +1,4 @@
+LEY 10897
+Texto Actualizado con las modificaciones introducidas por las Leyes 10918 y 11057.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
