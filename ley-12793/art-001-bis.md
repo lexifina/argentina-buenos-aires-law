@@ -1,0 +1,1 @@
+ARTICULO 1 Bis.- (Artículo incorporado por Ley 13215) A los efectos de la suspensión de la ejecución de las sentencias judiciales aludidas, se considerará conformado definitivamente el Fideicomiso creado por la Ley N° 12.726, con la firma del respectivo Contrato de Fideicomiso.
