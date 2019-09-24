@@ -1,0 +1,6 @@
+LEY 6682
+Texto actualizado del Texto Ordenado por Decreto 5514/87 con las modificaciones introducidas por la Ley 12008.
+EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
+CAPITULO I
+DEL COLEGIO DE FARMACEUTICOS
