@@ -1,0 +1,1 @@
+ARTICULO 3°: La situación de los beneficiarios de la Ley 11.199 será tenida en cuenta, a cualquier efecto, al tiempo de sanción de la misma. Sin perjuicio de ello, la Autoridad de Aplicación queda facultada a realizar los relevamientos o estudios que resultaren a su criterio necesarios para el mejor cumplimiento de lo ordenado.
