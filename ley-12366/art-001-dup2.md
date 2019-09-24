@@ -1,0 +1,1 @@
+Art. 1º - Obsérvase, en el artículo 3º del proyecto de Ley sancionado por la Honorable Legislatura, con fecha 17 de noviembre de 1999, a que alude el Visto del presente la expresión “la Secretaría de Tierras y Urbanismo y/o”
