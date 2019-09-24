@@ -1,0 +1,4 @@
+LEY 13904
+NOTA: Ver el Decreto 3241/11 que declara abandonada la presente expropiación.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
