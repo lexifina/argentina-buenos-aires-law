@@ -1,0 +1,2 @@
+ARTICULO 28°bis: (Artículo Incorporado por Ley 12007) Ningún Juez o Tribunal de Justicia, cualquiera sea su fuero, podrá ordenar el cumplimiento de sentencias, el levantamiento de medidas cautelares, dar por terminado un juicio u ordenar su archivo, sin antes haberse pagado los aportes previsionales de los profesionales comprendidos en la presente Ley, correspondientes a honorarios derivados de la realización de tareas periciales.
+El subrayado fue observado por Decreto - Ley N° 3.442/97. -
