@@ -1,0 +1,5 @@
+LEY 12223
+Texto Actualizado con las modificaciones introducidas por la Ley 12557
+EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES
+SANCIONAN CON FUERZA DE
+LEY
