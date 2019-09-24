@@ -1,0 +1,1 @@
+ARTICULO 3.- Tendrá por objeto la administración, conservación y explotación, por sí o a través de concesionarios, del complejo balneario de Punta Mogotes, el que se compone de veinticuatro Balnearios, una Laguna, seis Restaurantes y diez Quioscos.
