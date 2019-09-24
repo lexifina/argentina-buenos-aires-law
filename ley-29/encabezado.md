@@ -1,0 +1,6 @@
+LEY 29
+EL SENADO Y CÁMARA. DE REPRESENTANTES DEL
+ESTADO DE BUENOS AIRES, REUNIDOS EN ASAMBLEA GENERAL,
+HAN SANCIONADO CON VALOR Y FUERZA DE LEY, LO SIGUIENTE:
+Derecho de importación en los puertos de San Nicolás de los Arroyos y Atalaya
+Buenos Aires, Septiembre 18 de 1854.
