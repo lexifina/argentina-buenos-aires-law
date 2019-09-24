@@ -1,0 +1,1 @@
+Art. 3º - A todos los efectos legales se entiende que se corresponden con el interés superior del niño y joven las acciones tendientes a favorecer su pleno desarrollo físico, psicológico, educativo, cultural, moral, espiritual y social, para lograr el desenvolvimiento de sus potencialidades y el despliegue integral y armónico de su personalidad.

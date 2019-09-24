@@ -1,0 +1,1 @@
+Art. 191 - A los fines de lo previsto en la presente, el Poder Ejecutivo procederá a la designación de los miembros del Ministerio Público de modo progresivo y conforme a las necesidades, y según lo prescripto en el artículo 190.
