@@ -1,0 +1,4 @@
+LEY 6437
+Destinando $ 10.000.000m/n para la erección del Servicio de Hidratación Infantil.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
