@@ -1,0 +1,4 @@
+LEY 13714
+Texto actualizado con las modificaciones introducidas por Ley 13786 Y 13929.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
