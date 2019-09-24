@@ -1,0 +1,4 @@
+LEY 183
+Pensión a la viuda e hijos de José Barragán.
+EL SENADO Y CÁMARA DE REPRESENTANTES DEL
+ESTADO DE BUENOS AIRES, ETC.
