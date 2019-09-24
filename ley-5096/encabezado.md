@@ -1,0 +1,6 @@
+DEROGADA POR LEY 5650
+LEY 5096
+Creación de Jardines de Infantes a cargo de la Dirección de Escuelas.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES, SANCIONAN CON FUERZA DE
+LEY
