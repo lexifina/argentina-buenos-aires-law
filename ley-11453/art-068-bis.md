@@ -1,0 +1,1 @@
+Artículo 68 Bis.- Son aplicables a los Jueces de Familia todas las disposiciones relativas a las calidades, forma de designación, remoción, garantías, obligaciones, deberes y atribuciones que rigen para los Jueces de Primera Instancia.
