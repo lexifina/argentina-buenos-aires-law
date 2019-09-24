@@ -1,0 +1,4 @@
+DEROGADA POR LEY 5141
+LEY 2541
+Modificación de la Ley 1429 sobre expropiación.
+EL SENADO Y CÁMARA DE DIPUTADOS, ETC.
