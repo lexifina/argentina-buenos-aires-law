@@ -1,0 +1,5 @@
+LEY 7162
+La Plata, 25 de Noviembre de 1975.
+Modificación de varios artículos de la ley 6936
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
