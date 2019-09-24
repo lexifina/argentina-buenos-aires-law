@@ -1,0 +1,1 @@
+ARTICULO 1°: Obsérvase, en el artículo 2° del proyecto de ley sancionado por la Honorable Legislatura el 1° de octubre de 1.997, a que hace referencia el Visto del presente, la expresión "Circunscripción III, Sección Rural, Parcela 2 (carente de inscripción de dominio)".
