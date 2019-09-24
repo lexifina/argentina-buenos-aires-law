@@ -1,0 +1,1 @@
+Artículo 1º - Vétase en el artículo 1º del proyecto de ley sancionado por la Honorable Legislatura, con fecha 27 de diciembre del año 2001, al que hace referencia el Visto del presente, la expresión: "...y cuya organización estará a cargo de la Subsecretaría de Cultura, dependiente de la Dirección General de Cultura y Educación".
