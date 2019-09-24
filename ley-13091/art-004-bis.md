@@ -1,0 +1,2 @@
+ARTICULO 4 Bis: (Artículo incorporado por Ley 13155) Las escrituras traslativas de dominio de inmuebles, otorgadas como consecuencia de subdivisiones de partidas realizadas en el marco de la presente, quedan comprendidas en el artículo 4, inciso d) de la Ley nº 10830.
+A los efectos previstos en el párrafo anterior, el inmueble de cuya escrituración se trate deberá revestir para el adquirente, el carácter de única propiedad destinada a vivienda familiar de uso propio y ocupación permanente y su valuación fiscal no podrá superar la suma de pesos sesenta mil ($ 60.000).
