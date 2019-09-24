@@ -1,0 +1,1 @@
+ARTICULO 3º: La consolidación dispuesta por la Ley también alcanza a los efectos no cumplidos de las sentencias, laudos arbitrales y demás actos jurisdiccionales administrativos o transaccionales, dictados o acordados con anterioridad a la vigencia de la Ley respecto a obligaciones consolidadas, aunque hubiesen tenido principio de ejecución.

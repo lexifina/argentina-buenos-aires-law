@@ -1,0 +1,2 @@
+ARTICULO 10º: Con carácter previo a la emisión de los Certificados de Cancelación de Deudas Municipales - Ley 13.137 -, el Municipio deberá enviar al Ministerio de Economía de la Provincia de Buenos Aires el acto administrativo que disponga la emisión de los mismos, donde deberán constar el monto, la moneda, amortización de capital, tasa de interés y demás características de la emisión.
+El Ministerio de Economía analizará las condiciones y emitirá un informe sobre el impacto de la consolidación de la deuda en las finanzas municipales.
