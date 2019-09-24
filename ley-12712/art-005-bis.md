@@ -1,0 +1,1 @@
+ARTICULO 5 Bis: (Artículo incorporado por Ley 13094) Amplíase a cinco (5) años el plazo para la promoción del juicio de expropiación correspondiente a los bienes enunciados en el artículo 1 de la presente norma.
