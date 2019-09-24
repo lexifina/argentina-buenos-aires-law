@@ -1,0 +1,4 @@
+LEY 8480
+Texto Actualizado con las modificaciones introducidas por Ley 10596.
+EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
