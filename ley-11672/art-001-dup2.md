@@ -1,0 +1,1 @@
+ARTÍCULO 1°: Apruébase el Acta de Transferencia a título gratuito del Puerto de Bahía Blanca a favor de la Provincia de Buenos Aires, suscripta con el Ministerio de Economía y Obras y Servicios Públicos de la Nación con fecha 1 de setiembre de 1993, cuyo texto, como Anexo I, pasa a forma parte integrante del presente.

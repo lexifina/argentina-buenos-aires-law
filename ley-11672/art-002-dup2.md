@@ -1,0 +1,1 @@
+ARTÍCULO 2°: Apruébase el Acta de Transferencia a título gratuito del Puerto de Quequén a favor de la Provincia de Buenos Aires, suscripta con el Ministerio de Economía y Obras y Servicios Públicos de la Nación con fecha 1 de marzo de 1994, cuyo texto, como Anexo II, pasa a formar parte integrante del presente.
