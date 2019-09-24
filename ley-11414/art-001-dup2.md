@@ -1,0 +1,1 @@
+ARTICULO 1°: Constitución y Naturaleza jurídica: EL "CONSORCIO PORTUARIO DE BAHIA BLANCA", es un ENTE DE DERECHO PUBLICO NO ESTATAL, que se rige por el presente ESTATUTO y las normas constitucionales, legales y reglamentarias que le sean aplicables, conforme a su naturaleza jurídica, su objeto y funciones.

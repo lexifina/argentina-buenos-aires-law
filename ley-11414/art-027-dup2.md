@@ -1,0 +1,11 @@
+ARTICULO 27°: Presidente. Veto. Revisión: El Presidente podrá vetar las decisiones del Directorio mediante expresión fundada. Podrá ejercer el veto solamente en los casos siguientes:
+a) Destino o uso de los aportes y/o subsidios que el Estado Nacional, Provincial o Municipal asignaren al CONSORCIO.
+b) Resoluciones vinculadas a la protección y restauración del medio ambiente portuario y marítimo en su ámbito de actuación
+c) Resoluciones que puedan afectar la salubridad o seguridad públicas, dentro o fuera de su ámbito de actuación.
+d) Resoluciones que puedan afectar la continuidad o la generalidad de los servicios portuarios.
+e) Gastos no presupuestados mayores a dos (2) meses de ingresos del ente.
+f) Endeudamiento y garantías plurianuales mayores a seis (6) meses de ingresos del ente.
+g) Aprobación del plan de desarrollo a largo plazo.
+El veto deberá ejercerlo durante la reunión de Directorio donde se haya tomado la decisión, tendrá carácter suspensivo y quedará automáticamente sin efecto si no es ratificado por el Ministerio de Obras y Servicios Públicos de la Provincia de Buenos Aires dentro de los quince (15) días hábiles administrativos de producido.
+CAPITULO VII
+AUDITORIA EXTERNA
