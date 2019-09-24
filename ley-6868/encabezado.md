@@ -1,0 +1,5 @@
+DEROGADA POR LEY 9304
+LEY 6868
+Creación del “Consejo Técnico de Constructores de Obras no Universitarios”.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
