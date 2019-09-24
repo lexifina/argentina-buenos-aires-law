@@ -1,0 +1,2 @@
+ARTÍCULO 3° bis: (Texto según Ley 12160). (*) En las causas penales correspondientes al fuero de menores regulado por el Decreto-Ley 10.067/83 (T.O. por Decreto 1.304/95) y sus modificatorias, se continuarán aplicando supletoriamente las disposiciones procesales de la Ley 3.589 (T.O. por Decreto 1.174/86) durante un (1) año a contar desde la entrada en vigencia de la Ley 11.922. En su caso, conocerán de los respectivos recursos las Cámaras de Apelación y Garantías en lo Penal.
+(*) Ver Ley 12.505.
