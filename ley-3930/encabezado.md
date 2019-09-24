@@ -1,0 +1,4 @@
+LEY 3930
+Construcción de un puente sobre el arroyo El Pescado, en La Plata.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
