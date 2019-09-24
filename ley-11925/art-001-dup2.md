@@ -1,0 +1,1 @@
+ARTICULO 1.- Obsérvase el proyecto sancionado por la Honorable Legislatura con fecha 18 de Diciembre de 1996 y a que hace referencia el Visto del presente en el artículo primero; la sustitución del artículo 12 de la Ley 8.271.
