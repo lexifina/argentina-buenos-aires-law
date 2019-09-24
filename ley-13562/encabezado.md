@@ -1,0 +1,4 @@
+LEY 13562
+Texto Actualizado con las modificaciones introducidas por Ley 13899.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
