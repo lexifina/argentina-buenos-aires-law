@@ -1,0 +1,4 @@
+LEY 12836
+Texto Actualizado con las modificaciones introducidas por la Ley 12874, 13436 y 13929
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY

@@ -1,0 +1,2 @@
+Art. 12. El presente acuerdo deberá ser comunicado al Honorable Congreso de la nación por el Poder Ejecutivo para su ratificación. De igual modo procederán las Provincias y la Ciudad Autónoma de Buenos Aires en el ámbito de sus respectivas jurisdicciones.
+Previa lectura y ratificación, lo firman el Sr. Jefe de Gabinete de Ministros, el Sr. Ministro de Economía, los Sres. Gobernadores, el Sr. Interventor de Corrientes y el Jefe de Gobierno de la Ciudad de Buenos Aires, en el lugar y fecha indicados al comienzo en prueba de conformidad.

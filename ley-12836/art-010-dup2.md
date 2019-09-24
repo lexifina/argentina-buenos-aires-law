@@ -1,0 +1,1 @@
+Art. 10. El Gobierno Nacional deberá instrumentar las modificaciones normativas necesarias para el cumplimiento de las obligaciones derivadas del presente acuerdo.

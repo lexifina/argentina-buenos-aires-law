@@ -1,0 +1,1 @@
+Art. 5° . En el ámbito de cada Jurisdicción Provincial se aplicarán los mecanismos e instrumentos financieros de liquidación de los fondos de coparticipación con los Municipios similares a los establecidos entre la Nación y las Provincias durante la vigencia del presente acuerdo.
