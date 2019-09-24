@@ -1,0 +1,17 @@
+ARTÍCULO 22 BIS: (DEROGADO por Ley 12856) (Artículo incorporado por Ley 12604) Le corresponde al Ministerio de Trabajo asistir al Gobernador de la Provincia en la determinación de las políticas de empleo, en el conocimiento de las cuestiones vinculadas con el trabajo en todas sus formas, el ejercicio indelegable del poder de policía en materia laboral y en especial le compete:
+1. Elaborar planes, programas y proyectos inherentes a las relaciones y condiciones de trabajo y al régimen legal de las asociaciones profesionales de trabajadores y empleadores, conforme las directivas que importa al Poder Ejecutivo.
+2. Fiscalizar la aplicación de las normas legales relativas a la existencia y funcionamiento de las asociaciones profesionales y atender la organización y registro de las asociaciones profesionales de empleadores.
+3. Intervenir en todo lo relativo a las negociaciones y convenciones colectivas de trabajo en todo el territorio provincial.
+4. Intervenir en el tratamiento de los conflictos individuales o colectivos de trabajo público, provinciales o municipales y privados, ejerciendo facultades de conciliación y arbitraje con arreglo a las normas aplicables.
+5. Ejercer la policía del trabajo en todo el territorio provincial coordinando pautas y acciones comunes con otros organismos de orden provincial y nacional. Intervenir en los programas y regímenes integrados de seguridad social.
+6. Intervenir en la elaboración y ejecución de pautas orientadoras de política salarial para el sector público y privado en concordancia con el Ministerio de Economía y demás organismos competentes.
+7. Ser la autoridad de aplicación en materia de políticas activas de promoción del empleo en el territorio provincial.
+8. Participar en la elaboración de políticas de migraciones internas y externas en relación a la necesidad de la mano de obra. Intervenir en la formación, capacitación y perfeccionamiento profesional de los trabajadores y en la reconversión ocupacional de los mismos.
+9. Intervenir en la aprobación de los convenios de corresponsabilidad gremial suscriptos entre organismos competentes y asociaciones gremiales de trabajadores y empresarios.
+10. Atender las cuestiones administrativas, económico-financieras y de recursos humanos de su jurisdicción.
+11. Fiscalizar el cumplimiento de las normas generales y particulares referidas a higiene y salubridad del trabajo y a los lugares o ambientes donde se desarrolla.
+12. Fiscalizar la aplicación del régimen del trabajador rural, coordinando acciones y pautas con otros organismos del orden provincial y nacional.
+13. Fiscalizar la aplicación del régimen del trabajo de mujeres y menores, coordinando acciones y pautas con otros organismos del orden provincial y nacional.
+14. Designar el representante del Ministerio de Trabajo, ante el Consejo Federal del Trabajo.
+CAPÍTULO IV
+Del Consejo de La Familia y Desarrollo Humano
