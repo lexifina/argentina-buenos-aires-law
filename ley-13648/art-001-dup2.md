@@ -1,0 +1,1 @@
+ARTICULO 1°. Observar en el artículo 8º primer párrafo in fine del proyecto de ley sancionado por la Honorable Legislatura con fecha 14 de marzo del año 2007, al que hace referencia el Visto del presente, la expresión "...impuesto”.
