@@ -1,0 +1,4 @@
+LEY 175
+Pensión a la viuda de Guillermo Brown.
+EL SENADO Y CÁMARA DE REPRESENTANTES DEL
+ESTADO DE BUENOS AIRES, ETC.
