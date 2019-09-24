@@ -1,0 +1,4 @@
+DEROGADA POR LEY 4371
+LEY 2749
+Funciones del Fiscal de Estado.
+EL SENADO Y CÁMARA DE DIPUTADOS, ETC.
