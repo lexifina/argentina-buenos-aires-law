@@ -1,0 +1,4 @@
+LEY 3560
+Texto actualizado con las modificaciones introducidas por Ley 10358.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
