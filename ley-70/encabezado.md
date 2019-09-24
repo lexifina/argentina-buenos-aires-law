@@ -1,0 +1,4 @@
+LEY 70
+Papel sellado para 1856
+Buenos Aires, octubre 3 de 1855
+EL SENADO Y CÁMARA DE REPRESENTANTES DEL ESTADO DE BUENOS AIRES, ETC.
