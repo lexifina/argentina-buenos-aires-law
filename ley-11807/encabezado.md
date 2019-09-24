@@ -1,0 +1,4 @@
+LEY 11807
+EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE:
+LEY
+Ver Ley 12889 que suprime el Instituto para el Desarrollo Empresario Bonaerense.
