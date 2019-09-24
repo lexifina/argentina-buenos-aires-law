@@ -1,0 +1,4 @@
+LEY 1387
+Supresión del Presupuesto de la Comisión de Aguas Corrientes.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
