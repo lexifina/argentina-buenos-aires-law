@@ -1,0 +1,5 @@
+LEY 11192
+Texto Actualizado con las modificaciones introducidas por la Ley 11212 y 12973.
+NOTA: Ver Ley 13612 art.49 y 50.
+EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
