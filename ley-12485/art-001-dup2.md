@@ -1,0 +1,1 @@
+Artículo 1º) Vétase en el artículo 1º del proyecto de ley sancionado por la Honorable Legislatura, con fecha 9 de agosto de 2000, al que hace referencia el Visto del presente, la expresión: "... en el ámbito del Registro Provincial de las Personas dependiente del Ministerio de Gobierno de la Provincia...".
