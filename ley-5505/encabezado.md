@@ -1,0 +1,5 @@
+LEY 5505
+Ver Ley 5550. Ref: Prorroga la vigencia del Plan de Trabajos Públicos.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES,
+SANCIONAN CON FUERZA DE
+LEY
