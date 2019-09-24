@@ -1,0 +1,1 @@
+Artículo 3°: Apruébese el texto del Contrato de Contragarantía que, como anexo, forma parte integrante del presente Decreto. Dispónese su suscripción, facultándose para la misma al Señor Ministro de Economía.-

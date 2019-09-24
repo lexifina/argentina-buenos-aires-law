@@ -1,0 +1,1 @@
+Artículo 2°: Por el Ministerio de Economía arbítrense los mecanismos conducentes a la firma del referido Convenio de Préstamo, en las condiciones fijadas en el artículo primero, extendiéndose los instrumentos respectivos.
