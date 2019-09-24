@@ -1,0 +1,1 @@
+ARTÍCULO 2°. Establecer que será cometido de la Subsecretaría de Gestión Educativa, asistir a la Dirección General de Cultura y Educación en la implementación de la política educativa definida para las Regiones Educativas y su aplicación en los establecimientos escolares a través de los diferentes niveles de supervisión.

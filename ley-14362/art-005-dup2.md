@@ -1,0 +1,1 @@
+ARTÍCULO 5°. Establecer que la Dirección General de Administración tramitará ante el Ministerio de Economía las adecuaciones presupuestarias necesarias para dar cumplimiento a lo dispuesto por la presente resolución.

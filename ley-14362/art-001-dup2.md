@@ -1,0 +1,1 @@
+ARTÍCULO 1°. Crear a partir del 12 de diciembre de 2011 la Subsecretaría de Gestión Educativa y la Subsecretaría de Recursos Humanos y Relaciones Laborales, de acuerdo al organigrama que como Anexo Único integra la presente.
