@@ -1,0 +1,1 @@
+ARTICULO 2: La soberanía reside en el pueblo, que la ejerce a través de sus representantes y demás autoridades legítimamente constituidas, y por sí, de acuerdo a las formas de participación que la presente Constitución reconoce.
