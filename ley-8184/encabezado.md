@@ -1,0 +1,6 @@
+LEY 8184
+NOTA: Ver Ley 8482
+Apruébase el acuerdo referido al embalse “Casa de Piedra”.
+EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE
+BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
