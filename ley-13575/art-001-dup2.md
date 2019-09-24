@@ -1,0 +1,1 @@
+ARTICULO 1º. Observar en el artículo 2º del proyecto de ley sancionado por la Honorable Legislatura el 11 de octubre de 2006, al que hace referencia el Visto del presente, las expresiones “El plazo de...” y “…es de treinta (30) años y…”.
