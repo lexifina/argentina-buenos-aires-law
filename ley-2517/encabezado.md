@@ -1,0 +1,4 @@
+DEROGADA POR LEY 7951
+LEY 2517
+Disposiciones sobre feria judicial.
+EL SENADO Y CÁMARA DE DIPUTADOS, ETC.
