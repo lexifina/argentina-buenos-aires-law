@@ -1,0 +1,1 @@
+Artículo 1º: Obsérvase en el artículo 2° del proyecto de ley sancionado por la Honorable Legislatura, en fecha 17 de marzo del 2005 y al que hace referencia el Visto del presente, la expresión “artículo 4° del”.
