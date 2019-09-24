@@ -1,0 +1,3 @@
+ARTICULO 437° bis: (Texto según Ley 11.624). El Ministerio Público podrá recurrir el pronunciamiento sobre la libertad del imputado cuando entendiera que existieron por parte de la defensa articulaciones manifiestamente dilatorias, siempre y cuando hubiese tomado recaudos a fin de evitar la dilación de que se trate en oportunidad de haber tomado conocimiento de la o las mismas y el juez o tribunal aún no las hubiera resuelto. La o las cuestiones deberán resolverse dentro del plazo de cinco (5) días.
+Si la impugnación fuese aceptada, no se computarán las demoras causadas por aquellas articulaciones.
+No mediando recursos o cuando éstos fuesen rechazados, el imputado recuperará la libertad bajo la caución que el juez o tribunal determine.

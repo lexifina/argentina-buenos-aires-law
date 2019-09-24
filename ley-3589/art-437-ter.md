@@ -1,0 +1,2 @@
+ARTICULO 437° ter: (Texto según Ley 11.624). En el acto de prestar la caución el imputado deberá fijar domicilio, denunciando el real y las circunstancias de trabajo que pudieren imponerle la necesidad de ausentarse por más de veinticuatro horas, lo que no podrá ser alterado sin autorización del juez o tribunal.
+Además, el juez o tribunal establecerá las reglas de conducta que deberá cumplir el imputado conforme las previsiones del artículo 27° bis del Código Penal y que resultaren compatibles con su situación procesal.
