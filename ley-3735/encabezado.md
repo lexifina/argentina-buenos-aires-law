@@ -1,0 +1,6 @@
+LEY 3735
+Texto Actualizado con las modificaciones introducidas por ley 5561, 6534 y 13912.
+NOTA: Ver Ley 7425.
+EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA
+DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
