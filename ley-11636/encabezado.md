@@ -1,0 +1,5 @@
+LEY 11636
+Texto Actualizado con las modificaciones introducidas por Ley 11795.
+EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES
+SANCIONAN CON FUERZA DE
+LEY
