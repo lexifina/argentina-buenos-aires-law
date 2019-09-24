@@ -1,0 +1,3 @@
+ARTICULO 24.- II- PROVISION DE INFORMACION
+El Concesionario debe llevar registros del servicio prestado y tomar muestras suficientes que permitan establecer si los servicios de provisión de agua y desagües cloacales se están operando y manteniendo correctamente, de acuerdo a las disposiciones del presente y del Contrato de Concesión. Estos registros deben estar disponibles en todo momento para las inspecciones que el ORBAS desee practicar. El modelo de la documentación en que se volcarán los registros, así como la periodicidad y localización con que se tomarán, figurarán en los Contratos de Concesión.
+El Concesionario deberá enviar esta información al ORBAS mensualmente.

@@ -1,0 +1,2 @@
+ARTICULO 1.- I- DEFINICIÓN DEL SERVICIO PUBLICO SANITARIO.
+Calificase como servicio público sanitario, regulable por el presente Marco Regulatorio, a toda captación y potabilización, transporte, distribución y comercialización de agua potable, la colección, tratamiento, disposición y comercialización de desagües cloacales, incluyéndose también a aquellos efluentes industriales que el régimen vigente permita que se viertan al sistema cloacal.
