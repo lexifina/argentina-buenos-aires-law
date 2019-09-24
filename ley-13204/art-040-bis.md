@@ -1,0 +1,1 @@
+Artículo 40 Bis.- En ningún caso podrán cubrirse Servicios de Custodias de cualquier tipo con personal policial que no esté asignado al Servicio de Custodias de Objetivos Fijos, Personas y Traslado de Detenidos.
