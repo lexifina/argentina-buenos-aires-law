@@ -1,0 +1,5 @@
+LEY 11158
+Texto Actualizado con las modificaciones introducidas por Ley 11494 y 14733.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE
+BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
