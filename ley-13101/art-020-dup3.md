@@ -1,0 +1,1 @@
+Artículo 20: Los Juzgados Contenciosos Administrativos funcionarán con una Secretaría. En función del índice de litigiosidad y las características, así como la cantidad de tarea de cada juzgado, la Suprema Corte de Justicia podrá disponer que algunos de ellos funcionen con dos Secretarías, una de las cuales será de ejecuciones fiscales."
