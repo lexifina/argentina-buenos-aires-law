@@ -1,0 +1,4 @@
+LEY 11483
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
+* Por Ley 12889 se suprime el Instituto Provincial de Acción Cooperativa.
