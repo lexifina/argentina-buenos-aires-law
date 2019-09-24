@@ -1,0 +1,7 @@
+LEY 5118
+Impuesto adicional inmobiliario al Latifundio.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES, SANCIONAN CON FUERZA DE
+LEY:
+I
+De la imposición
