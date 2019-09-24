@@ -1,0 +1,1 @@
+ARTICULO 1.- Vétase en el punto 3) inciso b) del texto incorporado al Decreto-Ley 6769/58 por el artículo 1 del proyecto de ley sancionado por la Honorable Legislatura, con fecha 25 de julio de 2002, al que hace referencia el Visto del presente, la expresión: "Poder".
