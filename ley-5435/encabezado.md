@@ -1,0 +1,6 @@
+LEY 5435
+TEXTO ORIGINAL
+NOTA: Ver el Dec-Ley 4344/57 que modificó la presente Ley.
+Ejercicio Profesional de la Química.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY:
