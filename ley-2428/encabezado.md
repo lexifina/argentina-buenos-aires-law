@@ -1,0 +1,4 @@
+LEY 2428
+Creación del Partido de General Alvarado
+EL SENADO Y CAMARA DE DIPUTADOS
+DEL ESTADO DE BUENOS AIRES, ETC
