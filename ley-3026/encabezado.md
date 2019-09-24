@@ -1,0 +1,4 @@
+LEY 3026
+Impuesto a la Producción Agropecuaria para 1907.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA
+DE BUENOS AIRES, ETC.
