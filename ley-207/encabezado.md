@@ -1,0 +1,4 @@
+LEY 207
+Impuesto de abasto en la campaña para 1858.
+EL SENADO Y CÁMARA DE DIPUTADOS DELESTADO DE
+BUENOS AIRES, ETC.
