@@ -1,0 +1,14 @@
+DEROGADA POR LEY 14656
+LEY 11757
+Texto Actualizado con las modificaciones introducidas por las Leyes 11853, 12950 y 14406.
+Nota: - El Decreto de Promulgación n° 61/96 observa artículos de la presente Ley.
+- Ver Ley 12563 (Jubilación Anticipada)
+- Ver Ley 12909, art. 67.
+ESTATUTO PARA EL PERSONAL DE LAS MUNICIPALIDADES
+EL SENADO Y CAMARA DE DIPUTADOS
+DE LA PROVINCIA DE BUENOS AIRES
+SANCIONAN CON FUERZA DE
+L E Y
+TITULO UNICO
+SECCION I – DISPOSICIONES PRELIMINARES
+1. ALCANCES
