@@ -1,0 +1,7 @@
+Artículo 29° bis:
+“Se entiende por domicilio fiscal electrónico al sitio informático personalizado registrado por los contribuyentes y responsables para el cumplimiento de sus obligaciones fiscales y para la entrega o recepción de comunicaciones de cualquier naturaleza.
+Su constitución, implementación, funcionamiento y cambio se efectuará conforme a las formas, requisitos y condiciones que establezca la Dirección Provincial de Rentas.
+Dicho domicilio producirá en el ámbito administrativo los efectos del domicilio fiscal constituido, siendo válidas y vinculantes todas las notificaciones, emplazamientos y comunicaciones que allí se practiquen.
+La Autoridad de Aplicación podrá disponer, con relación a aquellos contribuyentes o responsables que evidencien acceso al equipamiento informático necesario, la constitución obligatoria del domicilio fiscal electrónico, conforme lo determine la reglamentación.”
+Artículo 30º, último párrafo:
+“Los contribuyentes que posean domicilio fiscal electrónico deberán contestar los requerimientos de la Autoridad de Aplicación a través de esta vía, en el modo y condiciones que determine la reglamentación.”

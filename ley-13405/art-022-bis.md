@@ -1,0 +1,2 @@
+Artículo 22° bis:
+“Artículo 22° bis.- En oportunidad de realizarse la revisión técnica a la que se hace referencia en el artículo anterior, la empresa concesionaria, prestadora del servicio, deberá verificar el cumplimiento de las obligaciones provenientes del Impuesto a los Automotores que gravan al vehículo, y comunicar el resultado de dicha verificación a la Dirección Provincial de Rentas en la forma, modo y condiciones que ésta establezca mediante reglamentación.”

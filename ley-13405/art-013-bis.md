@@ -1,0 +1,14 @@
+Artículo 13° bis:
+“Con anterioridad al inicio del juicio de apremio, la Dirección Provincial de Rentas estará facultada para disponer, conforme al procedimiento que determine mediante reglamentación, en resguardo de las sumas adeudadas por los contribuyentes o responsables, como medida cautelar, entre otras, alguna de las siguientes:
+1) Traba de embargos sobre cuentas o activos bancarios y financieros, a diligenciar directamente ante las entidades correspondientes para el supuesto de encontrarse determinadas o, caso contrario, ante el Banco Central de la República Argentina para que proceda a efectuar las comunicaciones pertinentes a las instituciones donde puedan existir.
+En cualquiera de estos supuestos, las entidades financieras regidas por la Ley 21.526, dentro de los quince (15) días de notificadas de la medida, deberán informar a la Dirección Provincial de Rentas acerca de los fondos y valores que resulten embargados.
+2) Intervención de caja y embargo de las entradas brutas equivalentes al veinte (20) por ciento y hasta el cuarenta (40) por ciento de las mismas.
+3) Traba de embargos sobre derechos de crédito de los contribuyentes o responsables.
+4) Traba de embargos sobre sueldos u otras remuneraciones siempre que sean superiores a seis salarios mínimos, en las proporciones que prevé la ley.
+5) Traba de embargos sobre bienes muebles sean o no registrables.
+6) Traba de embargos sobre bienes inmuebles.
+7) Inhibición general de bienes e incluso su extensión a los activos bancarios y financieros, pudiendo oficiarse a las entidades bancarias correspondientes o al Banco Central de la República Argentina.
+En todos los casos, las anotaciones y levantamientos de las medidas asegurativas del crédito fiscal como así también las órdenes de transferencia de fondos que tengan como destinatarios a registros públicos, instituciones bancarias o financieras, podrán efectivizarse a través de sistemas y medios de comunicación informáticos, en la forma y condiciones que determine la reglamentación. Esta disposición prevalecerá sobre las normas legales o reglamentarias específicas de cualquier naturaleza o materia, que dispongan formas o solemnidades distintas para la toma de razón de dichas medidas cautelares.
+En todos los casos, al inicio de la ejecución deberá comunicarse al Juez la medida cautelar adoptada.
+Se producirá la caducidad de pleno derecho de las medidas cautelares que se hubieren dispuesto y hecho efectivas antes del proceso, si no se iniciase la ejecución fiscal dentro de los sesenta (60) días hábiles judiciales siguientes al de su traba.
+En los casos en que el contribuyente o responsable, antes del inicio del apremio, reconozca la totalidad de la deuda cautelada y la regularice, las medidas se mantendrán hasta tanto se encuentre cancelada el cincuenta por ciento de la deuda.”

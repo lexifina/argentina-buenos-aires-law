@@ -1,0 +1,1 @@
+ARTICULO 23.- Para el ejercicio fiscal 2006, de conformidad con lo establecido en el artículo 200° del Código Fiscal (Ley 10.397 –T.O.2004-) y sus modificatorias, fíjase en la suma de OCHENTA PESOS ($80), el monto mínimo de impuesto sobre los Ingresos Brutos para anticipos bimestrales.
