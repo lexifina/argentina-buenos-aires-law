@@ -1,0 +1,1 @@
+ARTICULO 1: Obsérvase la expresión: “... cuyos dominios obran inscriptos bajo los Folios 55.474 y 55.475 respectivamente, del Partido de San Vicente...” en el artículo 1° del proyecto sancionado por la Honorable Legislatura a que hace referencia el Visto del presente.
