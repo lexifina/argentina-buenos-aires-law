@@ -1,0 +1,1 @@
+Art. 1° - Vétanse el segundo párrafo del artículo tres y el inciso a) del artículo once del proyecto de ley sancionado por la Honorable Legislatura en fecha 13 de junio del corriente año, que establece el régimen legal de la "Caja de Seguridad Social para los Profesionales de Ciencias Económicas",al que hace referencia el Visto del presente.
