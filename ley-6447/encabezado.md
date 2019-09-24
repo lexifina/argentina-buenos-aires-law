@@ -1,0 +1,5 @@
+LEY 6447
+Estableciendo régimen de Créditos de Fomento Agrario
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES,
+SANCIONAN CON FUERZA DE
+L E Y
