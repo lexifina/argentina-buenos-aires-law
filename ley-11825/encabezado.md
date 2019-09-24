@@ -1,0 +1,5 @@
+LEY 11825
+Texto Ordenado por Decreto Nº 633/05 con la modificación introducida por la Ley 13178, 14050, 14879 y 15109.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES
+SANCIONAN CON FUERZA DE
+LEY
