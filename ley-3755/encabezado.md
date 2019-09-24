@@ -1,0 +1,6 @@
+DEROGADA POR LEY 4183
+LEY 3755
+Fijando la representación municipal del partido de Leandro N. Alem.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES,
+SANCIONAN CON FUERZA DE
+LEY
