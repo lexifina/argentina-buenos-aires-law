@@ -1,0 +1,1 @@
+ARTICULO 2º.- La Dirección Provincial de Energía dependiente del Ministerio de Infraestructura, Vivienda y Servicios Públicos de la Provincia de Buenos Aires será Autoridad de Aplicación de la Ley 12.089 y su reglamentación.

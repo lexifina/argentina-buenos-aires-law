@@ -1,0 +1,1 @@
+Artículo 10: La Ordenanza que deberán sancionar los Municipios que pretendan acceder a la condonación de sus deudas con la Provincia por el artículo 7º de la Ley deberá incluir la condonación de las deudas de todos los obligados al pago por el mismo concepto.
