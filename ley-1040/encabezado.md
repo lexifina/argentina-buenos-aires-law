@@ -1,0 +1,3 @@
+LEY 1040
+Pensión a Carlos Ruffet.
+EL SENADO Y CÁMARA DE DIPUTADOS, ETC.
