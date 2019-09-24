@@ -1,0 +1,4 @@
+LEY 3861
+Emisión de letras para atender el déficit en el presupuesto de 1926.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
