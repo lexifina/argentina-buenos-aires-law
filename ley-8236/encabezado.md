@@ -1,0 +1,4 @@
+LEY 8236
+Ampliando los términos establecidos en el régimen de la Ley 8146.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY:
