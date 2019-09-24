@@ -1,0 +1,4 @@
+LEY 8444
+NOTA: Ver Ley 8849, ref. amplía plazo establecido en el art.3 de la presente Ley.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY:
