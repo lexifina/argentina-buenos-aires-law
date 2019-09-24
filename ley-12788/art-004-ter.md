@@ -1,0 +1,2 @@
+ARTÍCULO 4 ter.- (Artículo incorporado por Ley 13366) La Autoridad de Aplicación de la presente Ley podrá suspender, por el plazo que la misma determine, la excepción establecida en el artículo anterior ante la degradación del ecosistema. Esta excepción deberá fundarse en la existencia de estudios científicos que así lo aconsejen, en la autorización de técnicas de explotación inadecuadas, en la excesiva explotación de los recursos, u otras que considere.”
+· Lo subrayado se encuentra vetado por el Decreto de Promulgación Nº 1878/05 de la Ley 13366.
