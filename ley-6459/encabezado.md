@@ -1,0 +1,4 @@
+LEY 6459
+Creando el Consejo Asesor Provincial de Seguridad e Higiene del Trabajo.
+EL SENADO Y CAMARA DE DIPUTADOS LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
