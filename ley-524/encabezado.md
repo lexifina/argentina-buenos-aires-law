@@ -1,0 +1,3 @@
+LEY 524
+Papel sellado para 1868.
+EL SENADO Y CÁMARA DE DIPUTADOS, ETC.
