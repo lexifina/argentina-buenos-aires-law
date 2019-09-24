@@ -1,0 +1,5 @@
+LEY 6750
+Ayuda a damnificados por siniestros en villas de emergencia.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES, SANCIONAN CON FUERZA DE
+LEY
