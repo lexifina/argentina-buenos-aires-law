@@ -1,0 +1,5 @@
+LEY 2926
+NOTA: Ver Ley 3288 (cambio de denominación)
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
+Creación del partido de Las Sierras.
