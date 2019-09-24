@@ -1,0 +1,1 @@
+ARTICULO 10.- El cuerpo de la Policía Buenos Aires 2, el asiento de su Jefatura general, la apertura de sus Estaciones, el nombramiento de sus correspondientes Jefaturas y el lugar de radicación de sus edificios se irá constituyendo progresivamente de acuerdo a la disponibilidad de efectivos y los planes de acción de la autoridad de aplicación.

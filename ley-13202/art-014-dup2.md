@@ -1,0 +1,1 @@
+ARTICULO 14.- Los Oficiales de Proximidad realizarán tareas básicas de prevención urbana en sectores predeterminados. Integrarán las Unidades y su función es netamente operativa, de acción permanente, observación constante y actuación inmediata. Su actividad se centra en evitar y/o hacer cesar la comisión de hechos delictivos y contravencionales.

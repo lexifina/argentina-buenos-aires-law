@@ -1,0 +1,3 @@
+ARTICULO 13.- Se entenderá por Unidad al conjunto operativo móvil que ejercerá tareas en función de las órdenes de servicio que determine el Jefe de Estación. Podrá estar compuesto por uno o varios móviles mecanizados y/o por patrullas de rondines.
+Las Unidades realizarán tareas operativas, instruyendo los cursos de acción en forma diaria. Establecerán los sectores que requieran una mayor presencia o prevención distribuyendo los dispositivos, móviles y efectivos adecuados a tal fin.
+Los responsables de las Unidades supervisarán y evaluarán a los Oficiales de Proximidad en el desempeño de las tareas asignadas en forma diaria.

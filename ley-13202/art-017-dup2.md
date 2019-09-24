@@ -1,0 +1,1 @@
+ARTICULO 17.- El Jefe de Policía Buenos Aires 2 podrá redistribuir el personal en forma provisoria, de una, varias o todas las Estaciones, en orden a las necesidades que demanden los correspondientes programas operativos.
