@@ -1,0 +1,1 @@
+Artículo 1°.- La retribución prevista en la Ley 13.355, será liquidada al agente dentro de los treinta días de producido el cese una vez que la autoridad correspondiente ha verificado el cumplimiento de los requisitos exigidos por esa ley. Para la liquidación se tomará el último sueldo básico más antigüedad.
