@@ -1,0 +1,5 @@
+LEY 12062
+Texto Actualizado con las modificaciones introducidas por Ley 12079 y 12232.
+EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE
+BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
