@@ -1,0 +1,3 @@
+LEY 661
+Pensión a Faustina, Candelaria y Leonarda Acevedo.
+EL SENADO Y CÁMARA DE REPRESENTANTES DE LA PROVINCIA DE BUENOS AIRES, ETC.
