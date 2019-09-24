@@ -1,0 +1,4 @@
+LEY 12034
+NOTA: Por Ley 13008 se prorroga por dos años la vigencia de la presente Ley.
+EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
