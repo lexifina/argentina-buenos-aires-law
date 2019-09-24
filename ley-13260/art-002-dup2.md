@@ -1,0 +1,1 @@
+Art. 2º.- Obsérvase en el primer párrafo del artículo 334 de la ley 11.922, conforme la redacción dada por el artículo 5º del proyecto de ley sancionado por la Honorable Legislatura, con fecha 21 de octubre del corriente año, al que hace referencia el artículo anterior, la siguiente expresión: "...ante los órganos ordinarios de juzgamiento.
