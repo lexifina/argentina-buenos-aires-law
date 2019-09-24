@@ -1,0 +1,6 @@
+DEROGADA POR LEY 6323
+LEY 6011
+Autorizando el aumento del aporte al Instituto de Obra Médico Asistencial.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES, SANCIONAN CON FUERZA DE
+LEY:
