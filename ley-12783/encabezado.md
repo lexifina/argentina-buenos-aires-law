@@ -1,0 +1,4 @@
+LEY 12783
+Texto actualizado con las modificaciones introducidas por la Ley 13181.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
