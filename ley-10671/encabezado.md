@@ -1,0 +1,4 @@
+LEY 10671
+Texto Actualizado con las modificaciones introducidas por la Ley 12030.
+EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
