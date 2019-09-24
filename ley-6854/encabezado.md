@@ -1,0 +1,5 @@
+DEROGADA POR LEY 7173
+LEY 6854
+Horario uniforme de apertura y cierre del comercio en general.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
