@@ -1,0 +1,5 @@
+LEY 52
+Se autoriza al Poder Ejecutivo ratificar el Tratado de Paz del 20 de Diciembre de 1854, con la Confederación Argentina.
+EL SENADO Y CÁMARA DE REPRESENTANTES DEL
+ESTADO DE BUENOS AIRES, REUNIDOS EN ASAMBLEA GENERAL,
+HAN SANCIONADO CON VALOR Y FUERZA DE LEY, LO SIGUIENTE:
