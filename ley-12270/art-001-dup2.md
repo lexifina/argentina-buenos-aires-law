@@ -1,0 +1,1 @@
+Artículo 1º: Vétase en el artículo 1º del Proyecto de Ley sancionado por la Honorable Legislatura, con fecha 16 de diciembre de 1998, al que hace referencia el Visto del presente, la mención a la parcela 17 ac de la Circunscripción III del Partido de Mar Chiquita.
