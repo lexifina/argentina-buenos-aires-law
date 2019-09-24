@@ -1,0 +1,4 @@
+LEY 182
+Pension a la viuda e hijos de Angel Salvadores.
+EL SENADO Y CÁMARA DE REPRESENTANTES DEL
+ESTADO DE BUENOS AIRES, ETC.
