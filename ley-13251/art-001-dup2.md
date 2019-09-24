@@ -1,0 +1,1 @@
+ARTÍCULO 1.- Obsérvase en el art. 7° inciso a) del proyecto de ley sancionado por la Honorable Legislatura con fecha 30 de septiembre de 2004, al que hace referencia el Visto del presente, la expresión "a través del Instituto de la Vivienda"
