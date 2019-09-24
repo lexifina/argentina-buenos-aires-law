@@ -1,0 +1,4 @@
+LEY 3702
+Jubilaciones y Pensiones Ferroviarias. Acogimiento Ley Nacional 10650.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
