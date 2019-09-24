@@ -1,0 +1,3 @@
+LEY 2755
+Subsidio a Ceferino López.
+EL SENADO Y CÁMARA DE DIPUTADOS, ETC.
