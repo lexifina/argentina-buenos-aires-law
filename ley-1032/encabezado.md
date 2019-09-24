@@ -1,0 +1,3 @@
+LEY 1032
+Términos Judiciales.
+EL SENADO Y CÁMARA DE DIPUTADOS, ETC.
