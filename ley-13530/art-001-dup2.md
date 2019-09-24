@@ -1,0 +1,1 @@
+ARTICULO 1°- Observar en el artículo 1° del proyecto de ley sancionado por la Honorable Legislatura el día 6 del corriente mes y año, al que hace referencia el Visto del presente, la siguiente expresión: “21”.
