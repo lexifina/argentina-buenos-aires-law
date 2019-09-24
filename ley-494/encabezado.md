@@ -1,0 +1,3 @@
+LEY 494
+Pensión a Mercedes Vega.
+EL SENADO Y CÁMARA DE DIPUTADOS, ETC.
