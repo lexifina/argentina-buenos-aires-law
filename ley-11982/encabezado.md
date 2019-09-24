@@ -1,0 +1,6 @@
+LEY 11982
+Texto Actualizado con las modificaciones introducidas por las Leyes 12060, 12085, 12161, 14065, 14295 y 14901.
+NOTA: Ver Ley 14295, crea cargos.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES,
+SANCIONAN CON FUERZA DE
+LEY
