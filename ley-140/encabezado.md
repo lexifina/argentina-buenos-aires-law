@@ -1,0 +1,4 @@
+LEY 140
+Creación de un Juzgado de Paz en Belgrano.
+EL SENADO Y CÁMARA DE REPRESENTANTES DEL ESTADO
+DE BUENOS AIRES, ETC.
