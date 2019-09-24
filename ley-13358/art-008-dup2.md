@@ -1,0 +1,1 @@
+Artículo 8º - Indivisibilidad. Las acciones son indivisibles. Si existiese copropiedad la representación para el ejercicio de los derechos y el cumplimiento de las obligaciones deberá unificarse. Las limitaciones a la propiedad y transmisibilidad de las acciones deberán constar en los certificados de la entidad depositaria.

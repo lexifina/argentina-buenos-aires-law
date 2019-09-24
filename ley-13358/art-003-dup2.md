@@ -1,0 +1,2 @@
+Artículo 3º - Duración. El término de duración de la Sociedad será de noventa y nueve (99) años, contados desde la fecha de inscripción de este Estatuto en la Dirección Provincial de Personas Jurídicas. Este plazo podrá ser ampliado por resolución de la Asamblea Extraordinaria o reducido con la previa autorización del Ente Nacional Regulador de Gas o del organismo que lo reemplace en sus funciones.
+TITULO II: DEL OBJETO SOCIAL.

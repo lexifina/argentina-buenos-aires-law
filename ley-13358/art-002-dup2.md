@@ -1,0 +1,1 @@
+Artículo 2º - Domicilio: El domicilio legal de la Sociedad se fija en la Provincia de Buenos Aires. Podrá establecer sucursales, agencias, delegaciones o representaciones dentro o fuera del Territorio de la República Argentina.
