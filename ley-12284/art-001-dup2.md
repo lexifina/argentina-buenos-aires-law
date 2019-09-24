@@ -1,0 +1,1 @@
+Art. 1º) Vétase en el artículo 1º del proyecto de Ley sancionado por la Honorable Legislatura, con fecha 16 de marzo de 1999, al que hace referencia el Visto del presente, la expresión: "...durante los cuales continuarán suspendidos todos los juicios de ejecución de obras municipales de infraestructura urbana contratadas hasta el 31 de diciembre de 1995..."
