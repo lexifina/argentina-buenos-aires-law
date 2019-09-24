@@ -1,0 +1,4 @@
+LEY 3848
+Exención de impuestos al legado de Manuela T. de Bonifacio.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
