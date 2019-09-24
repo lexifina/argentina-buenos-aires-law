@@ -1,0 +1,5 @@
+LEY 3688
+NOTA:
+Ver Ley 3690, en su art 8º, Ref: vigencia y agregado de la presente Ley.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
