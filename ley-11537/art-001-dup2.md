@@ -1,0 +1,1 @@
+ARTICULO 1: Obsérvase en el artículo 12 de la iniciativa sancionada por la Honorable Legislatura el día 2 de junio de 1994, a la que hace referencia el Visto del presente, el vocablo “definitivamente” y la frase “y expresamente prohibido contratar y dar cumplimiento a obligaciones pendientes por convenio o dominio de los mismos”.
