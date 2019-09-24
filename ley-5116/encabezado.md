@@ -1,0 +1,4 @@
+LEY 5116
+EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
+Texto Actualizado con las modificaciones introducidas por las Leyes 5318 y 7247.
