@@ -1,0 +1,3 @@
+ARTICULO 3 Bis.- (Artículo incorporado por Ley 13486) Autorízase a los letrados patrocinantes y apoderados judiciales, que así lo soliciten en un juicio de carácter universal, a diligenciar directamente los formularios a los que se refiere el artículo 3º de la presente Ley.
+A tales efectos, el letrado interviniente confeccionará y firmará la planilla pertinente, la que presentará en la mesa de entradas del juzgado, a fin de ser suscripta y sellada por secretaría.
+Cumplido, el letrado o la persona autorizada, la retirará para su diligenciamiento ante el Registro Público de Juicios Universales, quien procederá a su registro e informe del plazo fijado en el artículo 4º.
