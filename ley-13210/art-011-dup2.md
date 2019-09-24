@@ -1,0 +1,3 @@
+ARTICULO 11.- Falta grave. Alcance.
+La “falta grave” mencionada en el artículo 7º de la Ley 13.210 de Policías Comunales de Seguridad dará lugar, cuando la Jefatura de la Policía Comunal de Seguridad sea ejercida por un policía en actividad, a la aplicación del régimen disciplinario previsto en la Ley de Personal de las Policías y Ley 12.155 modificada por sus similares 12.884 y 13.204, y Decreto 1502/04.
+Cuando la Jefatura de la Policía Comunal de Seguridad sea ejercida por un ciudadano electo, la falta grave en cuanto a su consideración, procedimiento, plazos y órgano público de definición, se regirá por lo dispuesto en el artículo 249 de la Ley Orgánica de las Municipalidades, salvo en lo que refiere a la mayoría exigida por el artículo 14 inc f) de la Ley 13.210.

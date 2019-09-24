@@ -1,0 +1,2 @@
+ARTICULO 7º.- Revisión del plan integral estratégico.
+Una vez diseñado el plan de seguridad municipal, el Intendente Municipal deberá remitirlo a través de la Unidad de Coordinación Departamental de las Policías Comunales de Seguridad, al Jefe de Policía de Seguridad Departamental de la Provincia de Buenos Aires respectivo. De la misma forma, también deberá ser remitido al Foro Municipal de Seguridad de acuerdo al inciso J del artículo 14 de la Ley 12.155 de Organización de las Policías de la Provincia de Buenos Aires.

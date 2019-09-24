@@ -1,0 +1,2 @@
+ARTICULO 22º- No superposición con otras elecciones. Sufragio optativo.
+Esta elección no deberá superponerse ni compartirse con ninguna otra elección de orden municipal, provincial o nacional. La asistencia al comicio no será obligatoria y se realizará sobre la base del padrón utilizado en la última elección en donde se eligieron las autoridades municipales, dividido en la misma cantidad de electores por mesa electoral.

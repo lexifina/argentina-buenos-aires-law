@@ -1,0 +1,2 @@
+ARTICULO 3º.- Misiones del Intendente.
+De acuerdo a la Ley 13.210 el Intendente que haya adherido, deberá diseñar políticas preventivas y acciones estratégicas que integrarán el Plan de Seguridad Municipal. A fin de su implementación, éste deberá convocar al Foro Municipal de Seguridad, a las autoridades municipales y a toda aquella persona con conocimiento en la materia que se considere necesario de acuerdo al inciso J del artículo 14 de la ley 12.155 de Organización de las Policías de la Provincia de Buenos Aires.
