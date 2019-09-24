@@ -1,0 +1,3 @@
+LEY 2605
+Conmutación de Penas.
+EL SENADO Y CÁMARA DE DIPUTADOS, ETC.
