@@ -1,0 +1,5 @@
+LEY 6741
+Denuncia del acuerdo de Impuestos Internos Unificados.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES, SANCIONAN CON FUERZA DE
+LEY
