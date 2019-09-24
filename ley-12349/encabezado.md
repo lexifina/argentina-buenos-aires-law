@@ -1,0 +1,4 @@
+LEY 12349
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONA CON FUERZA DE
+LEY
+NOTA: Ver ley 12621 que prorroga la vigencia de la presente Ley por 180 días.
