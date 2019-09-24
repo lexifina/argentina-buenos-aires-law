@@ -1,0 +1,3 @@
+LEY 2653
+Modificaciones a la Ley 2581, sobre Montepío Civil.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, ETC.
