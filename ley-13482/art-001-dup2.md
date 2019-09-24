@@ -1,0 +1,1 @@
+ARTICULO 1°.- Vétase en el inciso f) del artículo 28 el proyecto de ley sancionado por la Honorable Legislatura con fecha 31 de mayo del año 2006 citado en el Visto del presente, la frase “...al que se hace referencia en los artículos 4, 5, 6 y 7 de la presente...”.
