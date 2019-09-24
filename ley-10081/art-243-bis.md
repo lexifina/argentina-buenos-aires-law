@@ -1,0 +1,1 @@
+ARTICULO 243° bis: (Artículo incorporado por Ley 15078) El producido de los derechos, tasas y aforos por aprovechamiento de los bosques fiscales provinciales, multas, comisos, indemnizaciones, derechos de inspección, permisos, peritajes y servicios técnicos en los bosques y tierras forestales, será destinado a Rentas Generales.
