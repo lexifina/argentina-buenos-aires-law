@@ -1,0 +1,1 @@
+ARTICULO 3°: Al entrar en vigencia la presente ley, el valor inmediato y automático del módulo (U.B.C.) será equivalente al importe resultante de dividir el monto en pesos de la Jubilación Ordinaria vigente par entonces, por trescientos treinta (330)
