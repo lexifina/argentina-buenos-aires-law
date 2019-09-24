@@ -1,0 +1,1 @@
+ARTÍCULO 8 bis: (Artículo Incorporado por Ley 14651) El Sistema de Protección Integral de las personas que padecen trastornos generalizados del desarrollo, determinará y priorizará su funcionamiento en los hospitales públicos de la Provincia de Buenos Aires, disponiéndose la infraestructura necesaria para la correcta implementación de los mismos.
