@@ -1,0 +1,4 @@
+LEY 66
+Plazo para el sellado de documentos simples.
+EL SENADO Y CÁMARA DE REPRESENTANTES DEL
+ESTADO DE BUENOS AIRES, ETC
