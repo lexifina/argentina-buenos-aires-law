@@ -1,0 +1,4 @@
+LEY 8314
+Declarando de interés provincial a la apicultura.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY:
