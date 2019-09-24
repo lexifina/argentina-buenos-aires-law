@@ -1,0 +1,2 @@
+ARTICULO 24° nonies : (Artículo Incorporado por Ley 11737) El Poder Ejecutivo podrá disponer la creación, supresión, modificación o fusión de Comisiones Provinciales de asesoramiento en temas especiales, sean éstas permanentes o transitorias u otros organismos con dependencia directa del Gobernador de la Provincia, cuando la necesidad u oportunidad lo requieran, siempre que ello no importe alterar las competencia ministeriales regladas por la presente Ley.
+DISPOSICIONES GENERALES Y COMPLEMENTARIAS

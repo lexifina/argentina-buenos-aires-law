@@ -1,0 +1,1 @@
+ARTICULO 24º bis : (Artículo Incorporado por Ley 11737) Las potestades, objetivos, régimen financiero y atribuciones que la Ley 11.469 confería al suprimido Instituto Provincial del Medio Ambiente deberán entenderse transferidas a la Secretaría de Política Ambiental creada por esta Ley.

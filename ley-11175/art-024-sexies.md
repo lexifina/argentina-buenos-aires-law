@@ -1,0 +1,1 @@
+ARTICULO 24 sexies : (Artículo Incorporado por Ley 11737) Los Secretarios actuarán bajo la dependencia directa del Poder Ejecutivo o la que éste determine, según el caso, pudiendo crear nuevas Secretarías y/o suprimir las existentes y/o fusionarlas.
