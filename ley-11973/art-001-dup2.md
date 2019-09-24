@@ -1,0 +1,1 @@
+Art. 1º) Obsérvase en el artículo 11 del proyecto de Ley sancionado por la Honorable Legislatura el 19 de junio del año en curso, al que hace referencia el Visto del presente, la expresión "...quedando suspendida toda acción judicial promovida en relación y con efecto sobre el inmueble a que se refiere la presente Ley".
