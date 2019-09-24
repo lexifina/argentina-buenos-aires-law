@@ -1,0 +1,1 @@
+ARTICULO 1.- Obsérvase en el artículo 2 del proyecto de ley sancionado por la Honorable Legislatura con fecha 9 del corriente mes y año al que hace referencia el Visto del presente, las siguientes expresiones: "…desde su nacimiento…".
