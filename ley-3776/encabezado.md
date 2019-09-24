@@ -1,0 +1,5 @@
+LEY 3776
+Adquisición del edificio del Banco Hipotecario Nacional, en La Plata.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES,
+SANCIONAN CON FUERZA DE
+LEY
