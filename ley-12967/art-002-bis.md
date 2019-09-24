@@ -1,0 +1,2 @@
+ARTÍCULO 2 bis.- (Incorporado por Ley 13432) Los Municipios que resulten beneficiados por la condonación establecida en el artículo 1°, deberán condonar las deudas de los obligados al pago por la obra de gas y disponer, en caso de que las sumas abonadas por los mismos excedan de seiscientos treinta (630) pesos, el reintegro de dicho excedente.
+Asimismo, deberán sancionar ordenanzas desafectando los fondos de las cuentas especiales para las obras de gas, especificando el destino de los mismos, debiendo ser asignados a la realización de obra pública con contenido social.”

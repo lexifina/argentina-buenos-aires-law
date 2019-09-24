@@ -1,0 +1,4 @@
+Ley12967
+Texto actualizado con la modificación introducidas por las leyes 13205 y 13432.
+EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
