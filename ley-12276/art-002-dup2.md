@@ -1,0 +1,1 @@
+Art. 2º - Obsérvase en el artículo 12 del proyecto de ley a que alude el artículo precedente las siguientes expresiones: “El monto de la sanción será estipulado por la dependencia municipal responsable del arbolado público, la que fijará los valores de la infracción según el grado de agresión sufrido por los ejemplares dañados” y “para que proceda al cobro de las mismas”.
