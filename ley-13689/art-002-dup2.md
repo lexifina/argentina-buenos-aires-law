@@ -1,0 +1,3 @@
+Artículo 2º - La Deuda determinada de conformidad con lo dispuesto en el artículo anterior será cancelada por la Provincia de acuerdo a las siguientes condiciones:
+a) Amortización del Capital: Se efectuará en ochenta y tres (83) cuotas mensuales y consecutivas equivalentes al uno coma diecinueve por ciento (1,19%) del capital y una última equivalente al uno coma veintitrés por ciento (1,23%) del capital, las que serán canceladas a partir del mes de enero de 2009.
+b) Intereses: Se calcularán sobre saldos a una tasa del seis por ciento (6%) nominal anual y se pagarán mensualmente, siendo el primer vencimiento en el mes de enero de 2008.
