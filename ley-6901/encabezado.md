@@ -1,0 +1,5 @@
+DEROGADA POR LEY 7043
+LEY 6901
+División en dos Salas de la Cámara de Apelación del Departamento Judicial de Azul.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
