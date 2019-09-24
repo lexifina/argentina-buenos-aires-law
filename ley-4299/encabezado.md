@@ -1,0 +1,8 @@
+DEROGADA POR LEY 7269, DEC-LEY 3181/56 Y LEY 10370
+LEY 4299
+NOTA:
+Ver Ley 5862 (art.7) (ref. vigencia)
+Ver Ley 5691 (ref.transferencia de fondos)
+Ver Ley 4712 (ref.modificación)
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
