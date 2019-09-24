@@ -1,0 +1,4 @@
+LEY 2508
+Prórroga de Sesiones Legislativas período XLI.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES, ETC.
