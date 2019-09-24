@@ -1,0 +1,3 @@
+ARTICULO 1.- Observase el artículo 1 del proyecto de ley sancionado por la Honorable Legislatura, con fecha 18 de abril de 2002, al que hace referencia el Visto del presente, con excepción de los términos que a continuación se transcriben:
+"Artículo 1.- Modifícase el inciso b) del artículo 19 de la Ley 5827 (T.O. Decreto 3702/92 y sus modificatorias) -Orgánica del Poder Judicial de la Provincia de Buenos Aires-:
+cuatro (4) Tribunales de Menores, dos (2) Tribunales de Menores tendrán su asiento y jurisdicción en la cabecera del Departamento judicial, los dos (2) restantes tendrán su asiento y jurisdicción, uno (1) en Florencio Varela y uno (1) en Berazategui, cada uno con jurisdicción en el partido de asiento, respectivamente".
