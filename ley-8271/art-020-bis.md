@@ -1,0 +1,3 @@
+ARTICULO 20 bis: (Artículo incorporado por Ley 13560) A fin de atender a los procesos electorales que se registren, tanto en jurisdicción provincial como en los Colegios Zonales, el Consejo Directivo designará a los miembros del Tribunal Electoral. A esos efectos, se ajustará a las previsiones de los artículos 87 y 88 del Decreto N° 7628/75. El Tribunal funcionará conforme a las normas establecidas en los artículos 89 a 97 del mismo ordenamiento.
+CAPITULO VI
+DE LA ASAMBLEAS
