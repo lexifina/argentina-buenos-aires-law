@@ -1,0 +1,4 @@
+LEY 6094
+Donación de terreno para el Asilo de Ancianos de Roque Pérez.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
