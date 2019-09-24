@@ -1,0 +1,1 @@
+ARTICULO 1°: Obsérvase en el artículo 1° del proyecto de ley sancionado por la Honorable Legislatura el 13 de marzo de 1.997, a que hace referencia el Visto del presente, la expresión “Identificado catastralmente como: Circunscripción I, Sección C, Quinta 3, Fracción 17, Partida 280”.
