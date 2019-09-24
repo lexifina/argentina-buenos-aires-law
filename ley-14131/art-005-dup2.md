@@ -1,0 +1,1 @@
+ARTÍCULO 5º: La presente Ley entrará en vigencia a partir del día siguiente al de su promulgación.
