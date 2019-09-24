@@ -1,0 +1,1 @@
+ARTICULO 1°: Obsérvese en el artículo 3 del proyecto de ley a que hace referencia el Visto del presente, la expresión: (los que a su vez serán entregados a las escuelas denominadas "de riesgo", por intermedio de los respectivos Consejos Escolares).
