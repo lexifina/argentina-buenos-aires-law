@@ -1,0 +1,4 @@
+LEY 4396
+Texto actualizado con las modificaciones introducidas por la Ley 4511.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
