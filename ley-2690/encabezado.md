@@ -1,0 +1,3 @@
+LEY 2690
+Contribución Directa para 1899.
+EL SENADO Y CÁMARA DE DIPUTADOS, ETC.
