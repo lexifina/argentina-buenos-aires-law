@@ -1,0 +1,1 @@
+Art. 1º.- Obsérvase en el artículo 164 de la ley 11.922, conforme la redacción dada por el artículo 1º del proyecto de ley sancionado por la Honorable Legislatura con fecha 28 de octubre del corriente año, al que hace referencia el Visto del presente, la expresión ".. la detención..".
