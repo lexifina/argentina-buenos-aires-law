@@ -1,0 +1,5 @@
+LEY 595
+EL SENADO Y CÁMARA DE REPRESENTANTE, DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
+Creación del Partido de General Alvear.
+Límites de Tapalqué y Saladillo.
