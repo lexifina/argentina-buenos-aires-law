@@ -1,0 +1,1 @@
+ARTÍCULO 4°. Observar en el artículo 58, la expresión “Sin perjuicio de lo dispuesto en el párrafo anterior, a los fines de la determinación del Impuesto Inmobiliario de la Planta Urbana del año 2007 deberá considerarse lo dispuesto en el Título I de la presente.”

@@ -1,0 +1,1 @@
+ARTÍCULO 3°. Observar en el artículo 14, la expresión “Dentro de los ingresos brutos percibidos se exceptuarán los provenientes del Instituto Obra Médico Asistencial, mientras dure la emergencia sanitaria a nivel nacional.”

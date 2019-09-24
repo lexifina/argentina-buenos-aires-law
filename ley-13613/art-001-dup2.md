@@ -1,0 +1,1 @@
+ARTÍCULO 1°. Observar en el artículo 4º del proyecto de ley sancionado por la Honorable Legislatura con fecha 28 de diciembre de 2006, al que hace referencia el Visto del presente, la frase "...y en el artículo 60 de la presente.".
