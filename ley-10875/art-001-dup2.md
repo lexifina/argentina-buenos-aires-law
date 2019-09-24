@@ -1,0 +1,1 @@
+ARTICULO 1.- Obsérvase en el artículo 1 del proyecto de ley sancionado por la Honorable Legislatura con fecha 29 de diciembre de 1989, mediante el cual se declaran de utilidad pública y sujetas a expropiación fracciones de terreno ubicadas en el Partido de General Sarmiento, “la parte donde expresa: “Parcela 82 a.”.
