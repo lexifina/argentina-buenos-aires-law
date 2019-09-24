@@ -1,0 +1,4 @@
+LEY 6137
+Ejercicio de la profesión de Protésico Dental de Laboratorio.
+EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
