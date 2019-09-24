@@ -1,0 +1,4 @@
+LEY 2519
+Derecho de Puerto y Muelles de La Plata, para 1895.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA
+DE BUENOS AIRES, ETC.
