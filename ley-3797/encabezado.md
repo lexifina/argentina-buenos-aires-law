@@ -1,0 +1,6 @@
+DEROGADA POR LEY 4316
+LEY 3797
+Reemplazo de Legisladores (Modificación de los artículos 93 y 94 de la Ley Electoral Nº 3489).
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES,
+SANCIONAN CON FUERZA DE
+LEY
