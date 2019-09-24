@@ -1,0 +1,1 @@
+ARTICULO 20.- En los supuestos de enfermedad o lesiones que hayan sido declaradas imputables al servicio, que demanden largo tratamiento, el agente será pasado a disponibilidad por un término de hasta seis (6) meses. Si en dicho término no se recuperara, podrá prolongarse hasta treinta (30) meses más, con goce íntegro de sueldo.

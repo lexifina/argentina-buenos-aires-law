@@ -1,0 +1,1 @@
+ARTICULO 71.- El agente policial que tuviere superioridad por cargo respecto de otro de igual jerarquía tendrá en relación a éste las facultades disciplinarias que correspondan al grado inmediato superior.

@@ -1,0 +1,1 @@
+ARTICULO 34.- Se entenderá por oficial de dirección aquel que tenga bajo su responsabilidad la conducción estratégica de las distintas unidades policiales conforme a la política de seguridad pública definida por la autoridad de aplicación en el marco de su especialidad.

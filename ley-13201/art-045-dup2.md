@@ -1,0 +1,3 @@
+ARTICULO 45.- El personal de las diferentes carreras policiales se desempeñará observando las competencias funcionales necesarias para el desarrollo eficiente del cargo. A tal efecto se entenderá por competencias al conjunto de saberes y formas de acción que permitan responder satisfactoriamente ante diversas situaciones en distintos ámbitos, conforme a principios y valores establecidos.
+Los desempeños permiten establecer las evidencias mediante las cuales se podrán reconocer las competencias.
+El Ministro Secretario del Departamento de Seguridad deberá establecer los parámetros para la evaluación permanente del personal en sus diferentes cargos, grados y niveles.

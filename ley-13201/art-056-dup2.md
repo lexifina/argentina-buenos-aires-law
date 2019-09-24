@@ -1,0 +1,1 @@
+ARTICULO 56.- El Comité Evaluador estará conformado por el Jefe inmediato superior del agente, el superior del Jefe evaluador, un representante del área ministerial de la que dependa el evaluado y un representante del Area de Certificación Profesional.

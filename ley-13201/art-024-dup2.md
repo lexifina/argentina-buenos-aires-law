@@ -1,0 +1,1 @@
+ARTICULO 24.- Dispuesta la desafectación del servicio y mientras dure la misma, se le limitará al personal afectado el ejercicio de las atribuciones previstas en los incisos a) y e) del artículo 11 de la ley 13201.

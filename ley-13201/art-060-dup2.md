@@ -1,0 +1,1 @@
+ARTICULO 60.- Los resultados, positivos y negativos, del análisis de la evaluación de desempeño se transmitirán en una entrevista personal. Cuando la evaluación sea negativa en alguna competencia o ítem de evaluación, deberán preverse de antemano las acciones correctivas que tendrá que desarrollar el evaluado.

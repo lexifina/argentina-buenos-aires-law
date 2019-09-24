@@ -1,0 +1,1 @@
+ARTICULO 40.- El personal podrá desarrollar su actividad profesional progresando en la Policía de la Provincia de Buenos Aires en que se desempeñe, mediante el ascenso de grado, o mediante la promoción de nivel, lo que implica un corrimiento horizontal dentro del mismo grado.

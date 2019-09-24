@@ -1,0 +1,4 @@
+ARTICULO 15.- El personal policial podrá revistar en disponibilidad, a la espera de destino, situación que no podrá prolongarse por más de treinta (30) días, salvo cuando la misma provenga del levantamiento de la desafectación del servicio prevista en el artículo 17 de la ley 13201 y 26 de la presente reglamentación.
+En dicho supuesto, el personal en disponibilidad, tendrá la obligación de fijar domicilio y presentarse ante la superioridad cuando fuera citado.
+ARTIULO 16.- Podrá disponerse el pase a disponibilidad del personal que se encuentre en condiciones de obtener su retiro o jubilación móvil ordinaria, cuando faltaren no más de seis meses para que alcance el tiempo mínimo necesario para ello.
+En dicho supuesto, el personal en disponibilidad, tendrá la obligación de fijar domicilio y presentarse ante la superioridad cuando fuera citado.

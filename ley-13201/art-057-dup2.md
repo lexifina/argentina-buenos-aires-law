@@ -1,0 +1,1 @@
+ARTICULO 57.- Los resultados de la Evaluación de Desempeño serán incorporados al L.A.U. para ser considerados como un insumo en oportunidad de discernir un ascenso o una promoción del agente evaluado.

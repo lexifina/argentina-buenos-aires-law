@@ -1,0 +1,1 @@
+ARTICULO 6.- El ingreso directo en los grados intermedios, en cualquiera de las carreras de las Policías de la Provincia de Buenos Aires, podrá efectuarse en los grados 4 y 5 de supervisión de acuerdo al artículo 28 de la ley 13201.

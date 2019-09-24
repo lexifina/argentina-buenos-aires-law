@@ -1,0 +1,1 @@
+ARTICULO 70.- Es la que deriva de la estructura orgánico funcional de las Policías y en virtud de la cual un agente policial tiene superioridad sobre otro de igual grado en lo concerniente la conducción de personal, impartición de órdenes en las áreas y/o dependencias que le estén directamente subordinados.

@@ -1,0 +1,1 @@
+ARTICULO 31.- El personal de las diferentes carreras policiales se desarrollará profesionalmente en los grados, cargos, niveles correspondientes, en la medida que responda a los requisitos para la cobertura de los mismos.

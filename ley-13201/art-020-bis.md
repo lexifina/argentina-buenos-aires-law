@@ -1,0 +1,4 @@
+ARTÍCULO 20 bis.- (Artículo incorporado por Ley 13369) El personal incapacitado, total o parcialmente en forma permanente en ejercicio de las funciones de Policía de Seguridad, podrá permanecer en la Institución en situación de actividad limitada hasta el momento de cumplir con todos los recaudos para obtener su retiro.
+Tendrá los mismos derechos y obligaciones que el personal en actividad con excepción de aquellas que sean improcedentes en virtud de su incapacidad, quedando eximido de los deberes previstos en los apartados f), g) y h) del artículo 12 de la presente Ley.
+Dicho personal tendrá derecho al uso de uniforme, insignia y atributos.
+La situación de actividad limitada no obstará a la percepción de indemnización, suplementos y/o subsidios que con motivo de la incapacidad sufrida corresponda

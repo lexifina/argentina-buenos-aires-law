@@ -1,0 +1,3 @@
+ARTICULO 17.- Podrá disponerse el pase a disponibilidad del personal, por razones de enfermedad o lesiones ajenas al servicio, de largo tratamiento, por un término de hasta seis meses.
+Si transcurrido dicho término, no se hubiere recuperado totalmente y, el servicio médico laboral de la Institución por medio de una junta médica estimare que ello podría ocurrir dentro de otro plazo similar al anterior, podrá prorrogarse la disponibilidad por otros seis meses, con goce íntegro de haberes.
+Si cumplido dicho término, el agente no se hubiere recuperado, se mantendrá la disponibilidad durante un año más, percibiendo el agente el cincuenta por ciento de sueldo.

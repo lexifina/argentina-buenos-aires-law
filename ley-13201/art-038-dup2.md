@@ -1,0 +1,1 @@
+ARTICULO 38.- El Ministro Secretario en el Departamento de Seguridad, determinará la estructura orgánica de las Policías de la Provincia de Buenos Aires definiendo cada cargo conforme los grados previstos en el artículo 32 del presente.

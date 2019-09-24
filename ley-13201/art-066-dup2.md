@@ -1,0 +1,1 @@
+ARTICULO 66.- La superioridad por misión para un objetivo determinado prevalecerá por sobre la superioridad por cargo y por jerarquía durante el tiempo, en el marco y a todos los efectos que demande el cumplimiento de la asignación.

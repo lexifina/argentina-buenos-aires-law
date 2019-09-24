@@ -1,0 +1,1 @@
+ARTICULO 54.- El Ministro Secretario en el Departamento de Seguridad aprobará el procedimiento y la documentación que posibilite la evaluación de desempeño del personal policial. A esos fines deberá determinar las condiciones y requisitos necesarios que permitan evaluar la actuación y los resultados logrados en forma individual o grupal por el personal.

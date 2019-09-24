@@ -1,0 +1,1 @@
+ARTICULO 23.- La desafectación del servicio podrá ser dispuesta en la forma prevista en el Título IX – Procedimiento Disciplinario – del presente, sin perjuicio de la facultad del Ministro de Seguridad de resolverla de oficio, cuando razones de oportunidad, mérito y conveniencia así lo aconsejen.
