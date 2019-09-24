@@ -1,0 +1,4 @@
+LEY 172
+Pension a la viuda e hijos José Maria Vilela
+EL SENADO Y CÁMARA DE REPRESENTANTES DEL
+ESTADO DE BUENOS AIRES, ETC.
