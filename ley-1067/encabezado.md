@@ -1,0 +1,7 @@
+LEY 1067
+TEXTO ORIGINAL
+NOTA: Ver Ley 5109 “Ley Electoral” vigente.
+LEY ELECTORAL
+EL SENADO Y CÁMARA DE DIPUTADOS, ETC.
+CAPÍTULO I
+De las secciones electorales
