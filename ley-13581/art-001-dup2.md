@@ -1,0 +1,1 @@
+ARTICULO 1°. Vetar en el inciso 7 del artículo 121 de la Ley N° 11.430 (texto según Ley N° 11.768), incorporado por el artículo 1° del proyecto de Ley a que hace referencia el Visto del presente, la siguiente expresión “... como única sanción o...”.
