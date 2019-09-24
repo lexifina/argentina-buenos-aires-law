@@ -1,0 +1,1 @@
+ARTICULO 1°. Vetar en el artículo 3° del proyecto de ley sancionado por la Honorable Legislatura el 11 de abril de 2007, al que hace referencia el Visto del presente la expresión “…partes iguales entre la Provincia de Buenos Aires y…”
