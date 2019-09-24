@@ -1,0 +1,7 @@
+DEROGADA POR LEY 9507
+LEY 8381
+NOTA: Ver Ley 9455 (art.13 suspende vigencia por 180 días)
+Modificando artículos del Decreto-Ley 20962/956 (T.O. 1969) “Seguro Colectivo”.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES, SANCIONAN CON FUERZA DE
+LEY
