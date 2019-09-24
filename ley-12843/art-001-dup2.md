@@ -1,0 +1,1 @@
+Art. 1º: Obsérvase en el artículo 2º del proyecto de ley sancionado por la Honorable Legislatura con fecha 27 de diciembre de 2001, al que hace referencia el Visto del presente, la expresión "... a través de la Dirección General de Cultura y Educación..."
