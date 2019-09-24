@@ -1,0 +1,4 @@
+LEY 12248
+Texto actualizado con las modificatorias introducidas por la Ley 12552.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
