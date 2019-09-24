@@ -1,0 +1,9 @@
+LEY 13178
+Texto Actualizado con las modificaciones introducidas por Ley 13857.
+NOTA: Al pie de la presente se encuentra el Decreto Reglamentario nº 828/04 de la presente Ley.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA
+DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
+CAPITULO I
+DE LA LICENCIA Y EL REGISTRO PROVINCIAL
+PARA LA COMERCIALIZACION DE BEBIDAS ALCOHOLICAS

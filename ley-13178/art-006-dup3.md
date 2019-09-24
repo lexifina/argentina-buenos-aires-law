@@ -1,0 +1,1 @@
+Artículo 6º: Las Licencias deberán exhibirse en un lugar visible del local comercial y/o establecimiento. En el caso de los distribuidores, el original se conservará en un lugar visible en el centro de distribución y una copia autenticada deberá encontrarse en el vehículo que transporte la mercadería.

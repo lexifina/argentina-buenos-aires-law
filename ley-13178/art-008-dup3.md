@@ -1,0 +1,1 @@
+Artículo 8º.- (Incorporado por Decreto 1174/05) Dispónese la aplicación del artículo 10 de la Ley Nº 11.825 (t.o. 633/05) a los fines de la determinación de las autoridades de comprobación de las infracciones a la Ley Nº 13.178 y de las normas que en su consecuencia se dicten, con las facultades allí previstas.

@@ -1,0 +1,2 @@
+Artículo 5º: Créase la Cuenta Puente Especial Nº 17738/8 “Licencia para la Distribución de Bebidas Alcohólicas - art. 5º Ley 13.178-”, donde deberán depositarse los importes correspondientes del canon para la obtención de las Licencias Categoría “A”.
+La Provincia destinará los fondos provenientes de la ley al financiamiento de Programas de Educación, Capacitación y Prevención de las Adicciones con un criterio amplio de prevención Primaria, Secundaria y Terciaria.

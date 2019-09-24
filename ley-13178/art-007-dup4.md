@@ -1,0 +1,1 @@
+Artículo 7º.- (Incorporado por Decreto 1174/05) A los fines de realizar el contralor, juzgamiento e imposición de las sanciones a la infracción al artículo 6º de la Ley N° 13.178, serán de aplicación las previsiones de los artículos 7º -segunda parte-, 8º, 9°, 10º, 11º, 12º, 13º, 14º, 15º y 16° de la Ley Nº 11.825 (t.o. Decreto Nº 633/05).
