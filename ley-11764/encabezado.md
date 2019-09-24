@@ -1,0 +1,5 @@
+LEY 11764
+(Texto actualizado con las modificaciones introducidas por la Ley 12214)
+EL SENADO Y CAMARA DE DIPUTADOS
+DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
