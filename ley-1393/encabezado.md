@@ -1,0 +1,4 @@
+LEY 1393
+Estudio para la ubicación de la nueva Capital de la Provincia.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
