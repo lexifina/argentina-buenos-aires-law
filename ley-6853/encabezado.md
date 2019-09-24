@@ -1,0 +1,5 @@
+DEROGADA POR LEY 9944
+LEY 6853
+Modificación del artículo 61 de la Ley 6788 (Creación del Colegio de Odontólogos).
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
