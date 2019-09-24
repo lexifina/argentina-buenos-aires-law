@@ -1,0 +1,4 @@
+LEY 10585
+Texto actualizado con las modificaciones introducidas por ley 13246.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
