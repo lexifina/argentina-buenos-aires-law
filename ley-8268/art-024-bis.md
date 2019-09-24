@@ -1,0 +1,1 @@
+ARTÍCULO 24 bis.- (Artículo Incorporado por Ley 8636) El Jefe de Policía podrá delegar en el Subjefe, la firma de expedientes del despacho diario, como también cualesquiera otra función que estime conveniente para el mejor cumplimiento de la misión asignada a la institución.
