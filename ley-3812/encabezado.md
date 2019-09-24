@@ -1,0 +1,4 @@
+LEY 3812
+Reparación de puentes sobre el Arroyo Maldonado, en San Martín.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
