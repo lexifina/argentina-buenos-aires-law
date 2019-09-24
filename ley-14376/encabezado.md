@@ -1,0 +1,4 @@
+LEY 14376
+NOTA: Ver Ley 14625 que prorroga por 2 años la vigencia de la presente Ley.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
