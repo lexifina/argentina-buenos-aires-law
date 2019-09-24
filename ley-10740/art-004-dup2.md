@@ -1,0 +1,1 @@
+Artículo 4: Las facturas emitidas por el prestador contendrán, separadamente, los importes correspondientes a la energía eléctrica consumida, los impuestos que gravan su consumo y la tasa municipal de alumbrado público.

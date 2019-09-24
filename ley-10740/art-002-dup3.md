@@ -1,0 +1,1 @@
+ARTICULO 2.- Convalidar lo actuado por los prestadores del servicio público de electricidad con los municipios de la Provincia, en razón de lo dispuesto por la resolución del señor Administrador General de la Dirección de la Energía de la Provincia (DEBA) registrada bajo N° 1423 del 25 de Julio de 1990.

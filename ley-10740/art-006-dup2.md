@@ -1,0 +1,1 @@
+Artículo 6: Si por motivos de orden operativo, la facturación de la tasa alcanzara a usuarios contribuyentes que se encontraran excluidos de su pago, producida la rendición por parte del prestador, la Municipalidad deberá proceder a tomar a su cargo el reintegro de las sumas percibidas.
