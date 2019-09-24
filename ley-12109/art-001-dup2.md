@@ -1,0 +1,1 @@
+Art. 1º - Obsérvase en el artículo 54 del proyecto de Ley sancionado por la Honorable Legislatura el día 7 de mayo de 1998, al que hace referencia el Visto del presente, la expresión "... en todas las jurisdicciones del país..."
