@@ -1,0 +1,1 @@
+ARTÍCULO 5º bis:(Incorporado por Ley 13196) A los efectos de la aplicación del artículo 47 de la ley 5.708, Ley General de Expropiaciones, se considerará abandonada la expropiación si el expropiante no promueve el juicio dentro de los cinco (5) años de sancionada la presente Ley.
