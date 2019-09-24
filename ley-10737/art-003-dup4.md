@@ -1,0 +1,1 @@
+Artículo 3.- Las disposiciones de la Ley General de Obras Públicas y las cláusulas generales y particulares de los pliegos de bases y condiciones regirán todos los aspectos vinculados con las contrataciones de obra que se efectúen.

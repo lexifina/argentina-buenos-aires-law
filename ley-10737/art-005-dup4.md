@@ -1,0 +1,1 @@
+Artículo 5: Corresponde al Consejo Asesor producir los informes y dictámenes pertinentes en todos aquellos asuntos en que se a de aplicación la Ley de Obras Públicas y sus disposiciones reglamentaria y complementarias.

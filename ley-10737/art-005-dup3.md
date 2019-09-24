@@ -1,0 +1,1 @@
+Articulo 5: La Dirección General de Administración podrá solicitar fondos para la atención directa de pagos derivados de la liquidación de haberes del personal del Agrupamiento Bloque Político, Legisladores y funcionarios.

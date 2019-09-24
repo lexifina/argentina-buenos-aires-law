@@ -1,0 +1,1 @@
+Artículo 6: La realización de construcciones, trabajos, instalaciones y obras en general cuya ejecución corresponda al H. Senado, deberán contar, previo a su adjudicación, con la intervención del Consejo Asesor de Obras, quien requerirá toda clase de informes, antecedentes, certificaciones y cualquier otro elemento que estime necesario.

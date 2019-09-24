@@ -1,0 +1,1 @@
+Artículo 2.- Apruébase, de conformidad con la facultad conferida por el artículo 16 de la Ley N° 13053 el texto ordenado de la Ley Complementaria Permanente N° 10737 y sus modificatorias, que como Anexo I forma parte del presente decreto.

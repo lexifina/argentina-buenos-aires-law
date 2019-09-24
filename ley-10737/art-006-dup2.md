@@ -1,0 +1,1 @@
+Artículo 6: En caso de uso de licencia anual, licencia médica u otro tipo de licencia especial, el pago de haberes podrá efectuarse a personas apoderadas o autorizadas en la forma prevista del presente decreto.
