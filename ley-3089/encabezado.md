@@ -1,0 +1,6 @@
+LEY 3089
+Texto Actualizado con las modificaciones introducidas por Ley 3599, 3915 y 4069.
+NOTA: Ver Ley 3599
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE
+BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
