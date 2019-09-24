@@ -1,0 +1,4 @@
+LEY 85
+Se declara Puerto Franco al de Villa del Carmen.
+EL SENADO Y CAMARA DE REPRESENTANTES DEL
+ESTADO DE BUENOS AIRES, ETC.
