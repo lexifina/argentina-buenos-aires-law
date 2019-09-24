@@ -1,0 +1,3 @@
+LEY 1979
+Creación del Partido de Coronel Dorrego.
+EL SENADO Y CAMARA DE DIPUTADOS DEL ESTADO DE BUENOS AIRES, ETC.
