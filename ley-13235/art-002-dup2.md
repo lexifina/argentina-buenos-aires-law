@@ -1,0 +1,1 @@
+Artículo 2°: Los ingresos y egresos de fondos que demande el cumplimiento de la Ley de Presupuesto, deberán efectuarse por intermedio de la Dirección General de Administración de la Honorable Cámara de Diputados.
