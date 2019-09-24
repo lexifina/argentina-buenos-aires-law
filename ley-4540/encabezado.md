@@ -1,0 +1,4 @@
+LEY 4540
+Texto Actualizado con las modificaciones introducidas por Ley 4705.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
