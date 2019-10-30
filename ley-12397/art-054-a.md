@@ -1,0 +1,2 @@
+ARTÍCULO 54 – A efectos del impuesto Inmobiliario, la valuación fiscal correspondiente a las obras y/o mejoras declaradas bajo el régimen del Título IV de la Ley 11.808 y sus modificatorias, será de aplicación a partir del momento de producida su incorporación al Registro Catastral.
+(Segundo Párrafo DEROGADO por Ley 12576) Lo dispuesto en el párrafo anterior regirá para las incorporaciones al Registro Catastral que se produzcan durante el Ejercicio Fiscal 2000.

@@ -1,0 +1,2 @@
+ARTÍCULO 53 – A efectos del impuesto Inmobiliario, las modificaciones que se efectúen en la valuación fiscal de los inmuebles ubicados en planta urbana y rural, en virtud de lo dispuesto en el artículo 29 de la Ley 11484 y primer párrafo del artículo 18 de la Ley 11808, serán de aplicación a partir del momento de producida su incorporación al Registro Catastral.
+(Segundo Párrafo DEROGADO por Ley 12576) Lo dispuesto en el párrafo anterior regirá para las incorporaciones al Registro Catastral que se produzcan durante el Ejercicio Fiscal 2000.

@@ -1,0 +1,1 @@
+ARTÍCULO 8º - A los efectos de la aplicación del artículo 137 inciso r) del Código Fiscal -Ley 10397 (t.o. 1999) -, considéranse inmuebles destinados a uso familiar aquellos cuya valuación fiscal no supere los cincuenta mil pesos ($ 50.000).
