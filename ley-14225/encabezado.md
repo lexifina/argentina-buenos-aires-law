@@ -1,0 +1,4 @@
+LEY 14225
+NOTA: La Ley 14677 prorroga el plazo previsto en el art.7 de la presente Ley.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
