@@ -1,0 +1,4 @@
+LEY 14223
+NOTA: La Ley 14678 prorroga el plazo previsto en el art.5 de la presente Ley.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
