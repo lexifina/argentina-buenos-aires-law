@@ -1,0 +1,4 @@
+LEY 13147
+(Texto actualizado con las modificaciones introducidas por Ley 13430)
+EL SENADO Y CÁMARA DE DIPUTADOS DE LAPROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
