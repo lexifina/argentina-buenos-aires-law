@@ -1,0 +1,2 @@
+ARTICULO 9°: TOMA DE POSESION:
+La Toma de Posesión por parte de la Provincia del Sector Ferroviario Concedido se operará simultáneamente con al firma del Convenio. Dicha Toma de Posesión se considerará provisoria hasta la fecha de la puesta en vigencia de este Convenio en cuyo momento la Toma de Posesión se considerará automáticamente definitiva.

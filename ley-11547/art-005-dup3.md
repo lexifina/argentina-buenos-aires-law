@@ -1,0 +1,2 @@
+ARTICULO 5°: PLAZO DE LA CONCESION:
+El plazo de Concesión será de treinta (30) años contados a partir de la fecha de la Toma de Posesión definitiva. Dicho plazo podrá ser prorrogado mediante acuerdo expreso de las partes. El mismo podrá adecuarse en el supuesto que resulte conveniente a las partes que el servicio transferido integre junto con otros el trámite de transferencia un solo Contrato de Subcontratación u Operación con el sector privado.

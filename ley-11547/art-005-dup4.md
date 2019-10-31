@@ -1,0 +1,2 @@
+Artículo 5º.- Atento que el convenio del 12 de Agosto de 1985, modificado por el presente acuerdo, fue ratificado por el Poder Legislativo Provincial y por Decreto del Poder Ejecutivo Nacional, el presente acuerdo será ratificado de la misma manera con expresa indicación de los inmuebles transferidos.
+En prueba de conformidad se firman dos ejemplares de un mismo tenor y a un solo efecto en Buenos Aires, a los 26 días del mes de Agosto de 1993.
