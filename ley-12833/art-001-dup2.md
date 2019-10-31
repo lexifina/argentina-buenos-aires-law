@@ -1,0 +1,1 @@
+Art. 1º.- Vétase en el artículo 3º del proyecto de ley sancionado por la Honorable Legislatura, el día veintinueve de noviembre de 2001, al que hace referencia el Visto del presente, la expresión “... que determine el Ministerio de Salud..."

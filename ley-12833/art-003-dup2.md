@@ -1,0 +1,1 @@
+Art. 3º.- Vétase en el artículo 6º del proyecto sancionado y al que hace referencia el artículo primero, la expresión: “....en el ámbito del Ministerio de Salud de la Provincia de Buenos Aires y dentro de la Dirección que por analogía corresponda, ...”.
