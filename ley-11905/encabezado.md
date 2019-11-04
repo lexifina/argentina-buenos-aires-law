@@ -1,0 +1,5 @@
+LEY 11905
+Texto Actualizado con las modificaciones introducidas por Ley 11981 y 12036.
+EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE
+BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
