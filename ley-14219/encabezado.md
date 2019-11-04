@@ -1,0 +1,4 @@
+LEY 14219
+NOTA: La Ley 14489 prorroga por el término de 5 años la vigencia de la presente Ley.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
