@@ -1,0 +1,1 @@
+Art. 46 - Autorízase al Poder Ejecutivo a acordar, en los convenios que se formalicen en el marco de las autorizaciones de endeudamiento previstas en los Arts. 42 y 45 de la presente Ley, la aceptación de ley aplicable extranjera, la prórroga de jurisdicción y la renuncia a oponer defensa de no justiciabilidad.

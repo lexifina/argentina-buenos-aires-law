@@ -1,0 +1,5 @@
+LEY 12575
+(Texto actualizado con las modificaciones introducidas por la Ley 12874, 12973 y 13612)
+NOTA: Ver Ley 13612 art. 29 y 32.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
