@@ -1,0 +1,1 @@
+Art. 11 - Sin perjuicio de las obligaciones que se prevean en el contrato, de concesión, en caso de mora en la integración de acciones, el Directorio está facultado para proceder de conformidad con lo dispuesto en los Arts. 192 y193 de la Ley 19.550.

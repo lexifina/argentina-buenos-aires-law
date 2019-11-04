@@ -1,0 +1,1 @@
+Art. 2º - El domicilio legal de la sociedad se fija en la ciudad de La Plata, provincia de Buenos Aires. Podrá instalar agencias, sucursales, establecimientos o cualquier tipo de representación, dentro o fuera del país.

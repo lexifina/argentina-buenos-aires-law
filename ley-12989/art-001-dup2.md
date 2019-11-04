@@ -1,0 +1,1 @@
+ARTÍCULO 1.- Dispónese en emergencia pública sanitaria y social el servicio de captación, potabilización, transporte, distribución y comercialización de agua potable; la colección, tratamiento, disposición y eventual reutilización y/o comercialización de desagües cloacales, en las zonas y partidos descriptos en el Anexo I del presente.
