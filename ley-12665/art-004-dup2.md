@@ -1,0 +1,1 @@
+Artículo 4º.- El control dispuesto en el presente será tanto en lo que se refiere a la existencia en stock de todos los talles, como de la correcta marcación de los mismos, conforme a las medidas aprobadas mediante las normas IRAM.

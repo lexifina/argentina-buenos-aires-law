@@ -1,0 +1,1 @@
+Artículo 2º.- Desígnase autoridad de aplicación de la Ley 12.665, dentro de los límites de sus respectivos territorios a los fines del contralor, juzgamiento e imposición de sanciones a los Municipios a través del organismo o estructura administrativa, que cada uno de ellos designe de conformidad a la Ley Provincial Nº 13.133, Titulo IX.

@@ -1,0 +1,4 @@
+LEY 12665
+Nota: Al pie de la presente Ley se encuentra el Decreto Reglamentario nº 866/05.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
