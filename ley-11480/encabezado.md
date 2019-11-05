@@ -1,0 +1,5 @@
+LEY 11480
+Texto Actualizado con las modificaciones introducidas por Ley 11573 y 11991.
+Nota: Ver Ley 11752.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
