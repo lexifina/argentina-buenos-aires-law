@@ -1,0 +1,1 @@
+ARTICULO 2: Obsérvase en el artículo 11 del proyecto de Ley sancionado por la Honorable Legislatura, con fecha 2 de noviembre de 1995, al que hace referencia el Visto del presente, la expresión “quedando suspendida toda acción judicial promovida en relación y con efecto sobre los inmuebles a que se refiere la presente Ley”.
