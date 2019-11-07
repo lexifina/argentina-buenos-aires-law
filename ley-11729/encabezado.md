@@ -1,0 +1,4 @@
+LEY 11729
+-Texto actualizado con las modificaciones introducidas por la Ley 12.254 y 12.394.-
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
