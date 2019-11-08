@@ -1,0 +1,6 @@
+LEY 10190
+Texto Actualizado con las modificaciones introducidas por ley 10216.
+NOTA: Ver ley 10216
+EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES
+SANCIONAN CON FUERZA DE
+LEY
