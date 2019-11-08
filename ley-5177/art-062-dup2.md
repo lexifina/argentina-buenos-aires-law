@@ -1,0 +1,1 @@
+ARTICULO 62°: En los supuestos previstos por el artícuo 31°, párrafo 5º, de la Ley, recibida las actuaciones por el Tribunal, éste resolverá dentro del plazo de treinta (30) días, mediante auto fundado, la apertura de la causa o su archivo, según corresponda.

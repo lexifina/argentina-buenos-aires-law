@@ -1,0 +1,1 @@
+ARTICULO 119°: El Consejo Directivo determinará el número de mesas receptoras de votos, designará sus autoridades -constituídas cada una por tres miembros-, y fijará las horas durante las cuales funcionará el comicio.

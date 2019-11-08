@@ -1,0 +1,1 @@
+ARTICULO 115°: Las listas que se oficialicen deberán postular candidatos para todos los cargos que se elijan, de acuerdo con lo dispuesto en la convocatoria, no pudiendo la misma persona candidatearse para dos puestos simultáneamente en la misma elección.

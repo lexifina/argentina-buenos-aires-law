@@ -1,0 +1,1 @@
+ARTICULO 120°: En cada mesa actuarán un presidente y dos vocales, y los fiscales que designen las listas oficializadas. Las autoridades de cada mesa serán designadas por el Consejo Directivo, conforme al presente Reglamento.

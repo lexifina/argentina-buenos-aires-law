@@ -1,0 +1,1 @@
+ARTICULO 66°: Del escrito de defensa y ofrecimiento de prueba se dará traslado al denunciante por el término de cinco (5) días al solo efecto que amplíe la prueba, si lo creyere necesario, sobre los hechos nuevos alegados.

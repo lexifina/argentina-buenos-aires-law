@@ -1,0 +1,1 @@
+ARTICULO 77°: Es obligación de los abogados guardar respeto a las autoridades de los Colegios, y colaborar en el esclarecimiento de cualquier cuestión en que se encuentren involucrados, que no afecte su derecho de defensa.

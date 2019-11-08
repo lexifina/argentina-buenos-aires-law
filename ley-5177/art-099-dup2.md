@@ -1,0 +1,1 @@
+ARTICULO 99°: Cuando se agotare la lista de oradores o se hiciese moción del cierre del debate sin haberse agotado aquélla, lo que deberá resolverse por dos tercios de votos presentes, se procederá a votar el punto en tratamiento, en forma nominal no fundada.

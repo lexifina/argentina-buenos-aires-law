@@ -1,0 +1,1 @@
+ARTICULO 97°: Cuando la Presidencia o la Asamblea resuelvan llamar al orden al orador, éste deberá explicar su actitud o retirar los términos que se hayan considerado impropios. Si accediese, proseguirá la sesión sin más ulterioridad; si se negase o si las explicaciones no fuesen satisfactorias, podrá retirársele el uso de la palabra, por mayoría de votos presentes.

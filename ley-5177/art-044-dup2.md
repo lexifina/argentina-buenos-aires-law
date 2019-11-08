@@ -1,0 +1,1 @@
+ARTICULO 44°: En cuanto a las comunicaciones judiciales relacionadas con cada profesional, que no tengan influencia en la situación del matriculado en el ejercicio profesional, deberán ser reservadas en el legajo personal del mismo.

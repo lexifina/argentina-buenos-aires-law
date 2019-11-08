@@ -1,0 +1,1 @@
+ARTICULO 107°: Los Colegios de Abogados Departamentales procederán a confeccionar el padrón electoral con los abogados inscriptos, en ejercicio activo de la profesión, que no adeuden la cuota anual al 31 de diciembre del año inmediato anterior.

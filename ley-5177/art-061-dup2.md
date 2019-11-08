@@ -1,0 +1,1 @@
+ARTICULO 61°: El denunciante no adquirirá la calidad de parte, pero estará obligado a brindar la más amplia colaboración para la investigación de la verdad y comparecer ante el Tribunal las veces que sea citado, aportando los elementos probatorios que obren en su poder.

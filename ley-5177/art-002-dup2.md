@@ -1,0 +1,1 @@
+ARTICULO 2º: El Consejo Directivo podrá delegar en el presidente, vicepresidentes o secretario, la facultad de disponer las inscripciones y de recibir juramento a los inscriptos, de lo que se dará cuenta en la primera reunión que el cuerpo celebre.

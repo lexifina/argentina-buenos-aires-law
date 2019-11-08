@@ -1,0 +1,2 @@
+ARTICULO 69°: Sustanciado el proceso o contestado el traslado previsto en el artículo 63° se dictará la providencia de autos, la que quedará firme dentro del quinto día de notificarse al imputado. Durante ese lapso, el interesado podrá alegar por escrito sobre el mérito de la prueba.
+La sentencia deberá ser fundada y decidirá sobre las costas, si las hubiere. A los fines de graduar la sanción, el Tribunal deberá tener en cuenta los antecedentes del imputado.

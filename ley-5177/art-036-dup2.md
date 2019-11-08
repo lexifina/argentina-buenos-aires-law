@@ -1,0 +1,1 @@
+ARTICULO 36°: Podrá solicitarse la suspensión en la matrícula antes del 31 de marzo de cada año, sin abonar la cuota respectiva, siempre que se acredite no haber ejercido la profesión en ese lapso de tres meses, mediante certificado negativo de la existencia de aportes, expedido por la Caja de Previsión Social para Abogados.

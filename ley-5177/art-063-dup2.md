@@ -1,0 +1,1 @@
+ARTICULO 63°: El Tribunal dará traslado de la denuncia al imputado por el término de quince (15) días, haciéndole saber su integración. La notificación se hará en los domicilios que el letrado hubiera declarado en el Colegio respectivo, si no se hubiese presentado en el expediente y constituido uno nuevo, con entrega de copias de la denuncia y documentos acompañados.

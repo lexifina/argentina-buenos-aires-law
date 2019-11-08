@@ -1,0 +1,1 @@
+ARTICULO 43°: En el caso de las sanciones disciplinarias, deberán constar las consecuencias de las mismas relacionadas con la suspensión o exclusión de la matrícula, pero el detalle de las sanciones no será accesible en forma directa, sino que deberá estar protegido por claves de acceso que aseguren la reserva de la información.

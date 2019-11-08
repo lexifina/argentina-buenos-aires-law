@@ -1,0 +1,1 @@
+ARTICULO 108°: Al 15 de abril se confeccionará un padrón adicional con los abogados inscriptos, los rehabilitados y los que paguen la matrícula del año inmediato anterior entre el 1º de enero y el 15 de abril.

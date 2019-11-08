@@ -1,0 +1,1 @@
+ARTICULO 8°: En las solicitudes de inscripción deberá incluirse una manifestación expresa del peticionante acerca de la existencia de matrícula o inscripción anterior, bajo la forma de declaración jurada, constituyendo el falseamiento de la misma una falta profesional pasible de alguna de las sanciones previstas en el art. 28° inc. 3 y 4 de la Ley.

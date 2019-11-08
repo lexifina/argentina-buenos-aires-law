@@ -1,0 +1,1 @@
+ARTICULO 127°: La Comisión de Escrutinio elevará su informe a la Asamblea en forma conjunta, por medio de su Presidente, sin perjuicio de que cada presidente de mesa aclare luego las cuestiones que se hubieren suscitado en su respectivo ámbito.

@@ -1,0 +1,3 @@
+ARTICULO 5º: El Colegio de la Provincia determinará los períodos en que se actualizarán los registros a que se refiere el artículo 12° de la Ley y la forma en que los Colegios Departamentales comunicarán las modificaciones que en ellos se introduzcan.
+A los efectos de lo dispuesto en el artículo 12°, incisos 1º y 2º de la Ley se considerarán “en ejercicio activo” los abogados inscriptos que no hayan solicitado suspensión de inscripción o no deban ser dados de baja por causas legales.
+Los registros del artículo 12° de la Ley, incluirán en todos los casos la fecha de inscripción de cada abogado.

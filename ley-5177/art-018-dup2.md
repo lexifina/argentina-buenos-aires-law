@@ -1,0 +1,1 @@
+ARTICULO 18°: Corresponde al Consejo Directivo representar al Colegio Departamental en sus relaciones con las autoridades locales y al Consejo Superior representarlo en sus relaciones con los poderes de la Provincia o con entidades de las cuales los Colegios formen parte, estén vinculadas o tengan relación con la profesión de abogado.

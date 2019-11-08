@@ -1,0 +1,1 @@
+ARTICULO 48°: La atribución que confiere el artículo 31° de la Ley a los Consejos Directivos para la iniciación de oficio de trámites disciplinarios será ejercida cuando obren en poder o conocimiento de éstos, elementos o antecedentes suficientes para efectuar la pertinente declaración.

@@ -1,0 +1,1 @@
+ARTICULO 9°: Cuando se presente solicitud de inscripción de un abogado con más de un año de graduado, el Colegio que la reciba requerirá de cada uno de los demás Colegios Departamentales un informe fehaciente acerca de la inexistencia de inscripción del interesado, como recaudo previo a la procedencia del pedido.

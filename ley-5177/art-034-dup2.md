@@ -1,0 +1,1 @@
+ARTICULO 34°: Los pagos a cuenta efectuados por un abogado moroso deben imputarse primero a intereses y capital de cuotas anteriores, y luego a la cuota que se pretende imputar por parte del deudor. Si mediare oposición por parte de este último, deberá formularse la reserva correspondiente en el recibo que instrumente dicho pago.

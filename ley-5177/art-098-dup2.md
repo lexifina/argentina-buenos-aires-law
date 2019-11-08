@@ -1,0 +1,1 @@
+ARTICULO 98°: No podrá hacer uso de la palabra quien no se hubiese inscripto en el registro que establece el artículo 92°. Ello no obstante, el registro podrá reabrirse en cualquier momento de la consideración del punto en debate, por el voto de los dos tercios de asambleístas presentes.

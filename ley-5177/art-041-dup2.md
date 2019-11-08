@@ -1,0 +1,1 @@
+ARTICULO 41°: En el caso de implementarse sistemas de registración informática de datos en los Colegios Departamentales y en el Colegio de la Provincia, deberá respetarse el derecho a la intimidad, no incluyéndose, en ningún caso, constancias relativas a las convicciones filosóficas, políticas o religiosas.

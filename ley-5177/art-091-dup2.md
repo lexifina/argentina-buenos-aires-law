@@ -1,0 +1,1 @@
+ARTICULO 91°: La sesión comenzará con la íntegra lectura del Orden del Día. Los asuntos se considerarán en el orden señalado en la convocatoria, salvo decisión en contrario que podrá resolverse por simple mayoría.

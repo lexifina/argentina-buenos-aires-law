@@ -1,0 +1,1 @@
+ARTICULO 38°: Cuando el abogado que solicite el pase a otro Colegio se encuentre en situación de incompatibilidad, no hará falta que solicite rehabilitación, ni que abone la matrícula, debiendo accederse a la petición sin el cumplimiento de ningún requisito previo.

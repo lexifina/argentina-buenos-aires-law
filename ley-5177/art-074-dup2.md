@@ -1,0 +1,1 @@
+ARTICULO 74°: Las resoluciones que dicte el Consejo Superior podrán impugnarse ante los tribunales en lo contencioso administrativo, conforme al artículo 74° de la Ley 12.008, dentro del plazo de quince (15) días, y mientras éstos no funcionaren, ante la Cámara de Apelaciones en lo Civil y Comercial de La Plata, Sala Especial.

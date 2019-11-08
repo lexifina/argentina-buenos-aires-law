@@ -1,0 +1,1 @@
+ARTICULO 117°: Dentro de las 72 horas de presentada la lista respectiva, se comunicarán las observaciones pertinentes al apoderado de la misma, a los efectos de permitir que se subsane el vicio, lo que deberá hacerse en igual lapso, bajo apercibimiento de tenerla por no presentada.

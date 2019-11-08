@@ -1,0 +1,1 @@
+ARTICULO 57°: El Tribunal de Disciplina elegirá un secretario en la oportunidad prevista por el artículo 45° de la ley, sin perjuicio de la facultad de designar actuarios para la sustanciación de las causas.

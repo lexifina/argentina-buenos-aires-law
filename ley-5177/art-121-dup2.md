@@ -1,0 +1,1 @@
+ARTICULO 121°: Los presidentes de las mesas receptoras de votos constituirán, una vez concluido el comicio, la Comisión de Escrutinio. Cuando funcione una sola mesa receptora, esta Comisión será integrada, además, por los vocales. Los fiscales o apoderados generales presenciarán el acto.

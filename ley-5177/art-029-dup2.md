@@ -1,0 +1,1 @@
+ARTICULO 29°: Corresponde a la Mesa Directiva del Colegio de Abogados de la Provincia atender el despacho y adoptar las providencias que las tareas ordinarias impongan, dando cuenta al Consejo Superior en su primera reunión.

@@ -1,0 +1,1 @@
+ARTICULO 92°: Para la consideración de cada punto del Orden del Día se abrirá por Secretaría un registro de asambleístas que usarán de la palabra. La Presidencia invitará a anotarse en dicho registro, que se cerrará antes de entrar en la consideración del tema. La palabra será concedida a los asambleístas en el orden en que figuren anotados en el registro.

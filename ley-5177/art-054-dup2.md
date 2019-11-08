@@ -1,0 +1,1 @@
+ARTICULO 54°: En caso de que el denunciado, al dar explicaciones, formule otra denuncia vinculada con los mismos hechos, que afecte a otro colegiado, se dará traslado de la misma al nuevo denunciado, en la forma y procedimiento previstos precedentemente.

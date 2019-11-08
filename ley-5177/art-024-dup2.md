@@ -1,0 +1,1 @@
+ARTICULO 24°: Para el ejercicio de la intervención coadyuvante acordada a los Colegios por el art. 121 de la Ley, la Mesa Directiva podrá acreditar como representante a un miembro del Consejo Directivo.

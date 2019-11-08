@@ -1,0 +1,2 @@
+ARTICULO 51°: El Consejo Directivo, a través de alguno de sus miembros, tomará la información pertinente y resolverá, conforme al procedimiento establecido por el artículo 31° de la Ley, si corresponde dar curso a la denuncia y pasar los antecedentes al Tribunal de Disciplina.
+El Consejo podrá encomendar a uno o varios de sus miembros la recopilación de información y producción de un dictamen para fundar su posterior decisión.

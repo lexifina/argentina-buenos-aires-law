@@ -1,0 +1,1 @@
+ARTICULO 39°: El pago fraccionado de la matrícula no será procedente en los casos de suspensión voluntaria, incompatibilidad y pase a otro Colegio, pero podrá ser ejercida la facultad prevista en la parte final del primer párrafo del artículo 54° de la Ley, tomando en cuenta al respecto la fecha en que se produzca el cambio de situación de matrícula.
