@@ -1,0 +1,3 @@
+LEY 4031
+Modificación de los ítems 125 y 135 del presupuesto de 1928.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, ETC.
