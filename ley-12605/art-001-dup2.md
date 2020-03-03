@@ -1,0 +1,1 @@
+Art. 1º - Vétase en el artículo 14 del proyecto de ley sancionado por la Honorable Legislatura, con fecha 20 de diciembre del año 2000, al que hace referencia el Visto del presente, la expresión: “... por la Secretaría de Tierras y Urbanismo, mediando intervención de la Autoridad de Aplicación y los correspondientes Municipios...”.
