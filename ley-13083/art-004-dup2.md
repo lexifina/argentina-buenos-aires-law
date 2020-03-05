@@ -1,0 +1,1 @@
+Art. 4º - La Provincia toma a su cargo los gastos que irroguen la asistencia técnica y administrativa prestada por el Proyecto PNUD ARG/00/042 a la SUCATS, en la formulación, seguimiento y supervisión del Plan, en una suma no superior al 1% del monto del préstamo asignado en el Art. 2º, el que podrá ser detraído en oportunidad del primer desembolso.
