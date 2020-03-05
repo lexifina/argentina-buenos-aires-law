@@ -1,0 +1,1 @@
+ARTICULO 1.- Obsérvese en el artículo 1 del proyecto de ley sancionado por la Honorable Legislatura, con fecha 15 de julio del año 2003, el que hace referencia el Visto el presente, el inciso e) del sustituido artículo 25 de la Ley 5.109 (T.O. Decreto Nº 997/93) y sus modificatorias.
