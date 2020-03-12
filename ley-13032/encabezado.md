@@ -1,0 +1,4 @@
+LEY 13032
+Texto Actualizado con las modificaciones introducidas por Ley 13397 y 14270.
+EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+L E Y
