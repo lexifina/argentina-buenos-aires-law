@@ -1,0 +1,1 @@
+ARTICULO 1.- Obsérvase en el artículo 3 del proyecto de ley sancionado por la Honorable Legislatura, con fecha 19 de diciembre del año 2002, al que hace referencia el Visto del presente, la expresión "…y el inmueble se retrotraerá al dominio de la Municipalidad de Las Heras, con todo lo adherido al suelo y…"
