@@ -1,0 +1,4 @@
+LEY 13521
+Texto actualizado con la modificación introducida por Ley 15227
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
