@@ -1,0 +1,3 @@
+ARTÍCULO 170. (Texto según Ley 14296) El Patronato de Liberados Bonaerense podrá proponer y/o aconsejar al Poder Ejecutivo sobre la conveniencia del otorgamiento de la conmutación de pena de sus tutelados, comunicando tal circunstancia al Juez de Ejecución o Juez competente.
+Del mismo modo podrá poner en conocimiento del Juez competente aquellos casos en los que, de la evaluación profesional efectuada por cualquier motivo por parte del Patronato, surgiera que la finalidad última de revinculación social del interno podría cumplirse con mayor efectividad en el medio libre, bajo alguna de las modalidades legalmente previstas.
+LEGAJO TUTELAR

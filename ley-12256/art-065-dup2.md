@@ -1,0 +1,1 @@
+ARTICULO 65 - Con excepción de casos de fuga, evasión o de sus tentativas, o de resistencia por la fuerza activa o pasiva a una orden basada en norma legal o reglamentaria, al personal penitenciario le está absolutamente prohibido emplear la fuerza en el trato con los internos.

@@ -1,0 +1,2 @@
+ARTICULO 181 - El Patronato de Liberados facilitará a sus tutelados y/o a su grupo familiar cuando razones de asistencia, tratamiento y/o control así lo justifiquen el traslado dentro y fuera de la Provincia y/o de la República de acuerdo a sus posibilidades presupuestarias expidiendo órdenes de pasajes oficiales o entregando las sumas de dinero necesarias y/o efectuando las gestiones del caso.
+TRABAJO COMUNITARIO

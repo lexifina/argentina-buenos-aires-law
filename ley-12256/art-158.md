@@ -1,0 +1,1 @@
+ARTICULO 158 - Los programas de capacitación y actividad laboral correspondientes a internos alojados en el régimen cerrado tendrán las características propias de los demás regímenes, con la sola limitación que puedan establecer los necesarios recaudos de control.

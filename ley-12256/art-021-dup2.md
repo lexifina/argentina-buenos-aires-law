@@ -1,0 +1,2 @@
+ARTICULO 21 - El Juez de Ejecución o competente podrá revocar la detención domiciliaria cuando se quebrantase injustificadamente la obligación de permanecer en el domicilio fijado o cuando el resultado de la supervisión así lo aconsejare, pudiendo disponer su ingreso a cualquiera de los regímenes previstos en la presente Ley. La resolución podrá ser impugnada sin efecto suspensivo.
+CONDUCTAS ADICTIVAS

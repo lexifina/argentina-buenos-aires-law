@@ -1,0 +1,1 @@
+ARTICULO 59 - En cada establecimiento se llevará un registro de sanciones, foliado, encuadernado y rubricado por el Juez de Ejecución o Juez competente, en el que se anotarán por orden cronológico, las sanciones impuestas, sus motivos, su ejecución o suspensión, dejándose constancia de todo ello en el legajo personal.

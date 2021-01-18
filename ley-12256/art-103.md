@@ -1,0 +1,1 @@
+ARTICULO 103 - La Jefatura del Servicio Penitenciario a través del Instituto de Clasificación elevará al Juez de Ejecución o Juez competente, ante la requisitoria de éste, los antecedentes e informes de los internos que estén en condiciones de obtener la libertad condicional.

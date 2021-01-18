@@ -1,0 +1,1 @@
+ARTÍCULO 224. (La modificación dispuesta por Ley 14296 fue invalidada por ACORDADA 3562/11) (Texto original) Hasta tanto se reglamente la presente, continuarán rigiendo las normas reglamentarias en vigencia en tanto no se contrapongan con el texto de esta Ley.

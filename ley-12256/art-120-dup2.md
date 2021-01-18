@@ -1,0 +1,1 @@
+ARTICULO 120 - En este régimen el Servicio Penitenciario desarrollará una actividad prevalentemente asistencial fortaleciendo la noción de responsabilidad social a través de nuevos vínculos o el afianzamiento de los existentes.

@@ -1,0 +1,1 @@
+ARTICULO 191 - Si con posterioridad a la disposición de los bienes se presentare el propietario o quien acreditare legítimo derecho sobre los mismos, la Provincia a través de rentas generales responderá por su valor.

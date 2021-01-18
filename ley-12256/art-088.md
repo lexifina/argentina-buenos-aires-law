@@ -1,0 +1,1 @@
+ARTICULO 88 - Dentro de cada modalidad del régimen de procesados, la cobertura de las diferentes posibilidades ocupacionales o de capacitación laboral se realizará bajo la responsabilidad del jefe del establecimiento con especial consideración de las aptitudes de cada detenido, en cumplimiento del programa de asistencia dispuesto para cada caso en particular.

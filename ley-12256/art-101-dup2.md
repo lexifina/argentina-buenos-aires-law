@@ -1,0 +1,2 @@
+ARTICULO 101 – (Texto según Ley 14296) Los grupos de admisión y seguimiento orientarán su tarea de acompañamiento a la preparación para el egreso de todos los condenados incorporados a cualquiera de los regímenes de la presente Ley ante la proximidad de la concesión de la libertad condicional, libertad asistida o definitiva por agotamiento de la pena.
+En lo relativo a la libertad condicional y libertad asistida se observarán las disposiciones del artículo 3º de la presente Ley.

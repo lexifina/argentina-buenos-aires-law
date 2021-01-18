@@ -1,0 +1,1 @@
+ARTICULO 216 - El Servicio Penitenciario deberá comunicar, al Patronato de Liberados dentro de las cuarenta y ocho (48) horas de producido, el ingreso o reingreso a sus unidades carcelarias de liberados que se encontraren bajo su tutela.

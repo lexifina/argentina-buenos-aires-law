@@ -1,0 +1,1 @@
+ARTICULO 115 – (Texto según Ley 14296) La pena domiciliaria prevista en el artículo 10 del Código Penal, o cualquier medida sustitutiva o alternativa a cumplirse total o parcialmente fuera de los establecimientos penitenciarios, será supervisada en su ejecución de conformidad a lo establecido en el artículo 20 de esta Ley.

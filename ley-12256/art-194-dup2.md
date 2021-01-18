@@ -1,0 +1,1 @@
+ARTICULO 194 - Las Municipalidades y los organismos provinciales prestarán al Patronato de Liberados toda la colaboración directa que fuera necesaria para el acabado cumplimiento de sus fines. Asimismo deberán informarle sobre todo plan o programa asistencial que instrumenten con destino a la población en general.

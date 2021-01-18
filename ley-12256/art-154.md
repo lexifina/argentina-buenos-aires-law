@@ -1,0 +1,2 @@
+ARTICULO 154 - Los condenados que presuntamente presenten trastornos mentales graves, serán internados en secciones separadas especializadas en el Servicio Penitenciario, donde en condiciones de seguridad apropiada se desarrollará un programa asistencial que requiera cada caso. Si de la tarea diagnóstica surge la existencia de patología que exigiera una cobertura de mayor complejidad se dispondrá el alojamiento en el Instituto Neuropsiquiátrico de Seguridad.
+COMUNICACION

@@ -1,0 +1,2 @@
+ARTICULO 89 - Los internos de este régimen podrán procurarse otros medios de ocupación y trabajo como alternativa a los ofrecidos por la Institución con aprobación de la jefatura del establecimiento y conocimiento de las Direcciones de Trabajo Penitenciario, Seguridad y Régimen Penitenciario. Con esta finalidad podrán introducir los elementos y materiales que fueran necesarios, dentro de los límites compatibles con las normas de seguridad y disciplina del establecimiento y la modalidad a la que se los hubiese incorporado.
+TIEMPO LIBRE

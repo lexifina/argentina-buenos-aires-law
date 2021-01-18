@@ -1,0 +1,2 @@
+ARTICULO 176 – (Texto según Ley 14296) El Patronato de Liberados Bonaerense procurará capacitar al tutelado para el ejercicio de una profesión u oficio, por medio de subsidios o aportes directos en dinero o en especies, con o sin reintegro. En tal sentido, se deberán articular los mecanismos pertinentes con el Servicio Penitenciario para lograr la necesaria continuidad de la capacitación laboral adquirida por el tutelado en el medio penitenciario.
+TRABAJO

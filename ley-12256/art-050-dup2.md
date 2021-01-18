@@ -1,0 +1,1 @@
+ARTICULO 50 - Deberá valorarse al imponer las sanciones la magnitud de la infracción cometida, la reincidencia en conductas como la cuestionada, la personalidad del interno y las circunstancias del caso.

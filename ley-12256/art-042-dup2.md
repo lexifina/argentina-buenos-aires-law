@@ -1,0 +1,1 @@
+ARTICULO 42 - El orden y la disciplina se mantendrán con firmeza, pero sin imponer otras restricciones que las absolutamente necesarias para permitir la correcta implementación de las actividades propias de cada régimen o modalidades del mismo.

@@ -1,0 +1,1 @@
+ARTICULO 36 - El Consejo de Administración del Trabajo Penitenciario fijará las remuneraciones del trabajo carcelario para cada una de las categorías profesionales que establezca la reglamentación guardando proporcionalidad con los salarios que correspondan para el trabajo libre.

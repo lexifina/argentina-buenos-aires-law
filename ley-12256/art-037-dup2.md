@@ -1,0 +1,1 @@
+ARTICULO 37 - Las actividades productivas y rentables reproducirán en lo posible las características del trabajo en libertad con especial consideración de las aptitudes y capacidades de los procesados y condenados.

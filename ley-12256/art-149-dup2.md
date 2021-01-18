@@ -1,0 +1,1 @@
+ARTICULO 149 - La modalidad moderada está destinada a aquellos internos que a pesar de las dificultades en el manejo de los impulsos requieran un menor control. El tratamiento se efectivizará mediante la implementación simultánea de técnicas individuales y/o de pequeños grupos.

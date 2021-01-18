@@ -1,0 +1,1 @@
+ARTICULO 95 - El ingreso de los condenados a los diferentes regímenes y modalidades será dispuesto por la Jefatura del Servicio Penitenciario a propuesta de la Junta de Selección en base al informe elevado por el grupo de admisión y seguimiento.

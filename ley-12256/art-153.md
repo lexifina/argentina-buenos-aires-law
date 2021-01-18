@@ -1,0 +1,1 @@
+ARTICULO 153 - Las necesidades referidas a las áreas salud, higiene y alimentación de los internados, serán cubiertas por el Servicio Penitenciario salvo excepciones debidamente fundadas, mediando la autorización de la Dirección de Sanidad.

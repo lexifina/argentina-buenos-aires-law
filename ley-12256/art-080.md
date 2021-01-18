@@ -1,0 +1,2 @@
+ARTICULO 80 - El plazo de internación será fijado por la reglamentación dentro del cual el perito médico dictaminará si existe la enfermedad, los antecedentes, diagnóstico y pronóstico de la misma; si ha desaparecido el peligro de que el enfermo se dañe a sí mismo o a los demás, a que se refiere el artículo 34 inciso 1) del Código Penal. El perito será designado por el juez competente entre los médicos del Gabinete Psiquiátrico Forense.
+COMUNICACION

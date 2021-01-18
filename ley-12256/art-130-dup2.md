@@ -1,0 +1,1 @@
+ARTICULO 130 - La totalidad del trabajo que realicen los condenados en este régimen dentro del ámbito privado o público, se cumplirá en similares condiciones que el trabajo en libertad, ajustándose a la normativa laboral aplicable a cada caso.

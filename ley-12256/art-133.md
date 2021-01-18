@@ -1,0 +1,1 @@
+ARTICULO 133 - La modalidad amplia albergará a aquellos internos cuyas características personales permitan que sus respectivos programas de tratamiento se desarrollen no sólo en el establecimiento sino también en sus zonas aledañas con mínimos recaudos de control.

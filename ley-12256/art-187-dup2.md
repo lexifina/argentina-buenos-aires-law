@@ -1,0 +1,1 @@
+ARTICULO 187 - El Fondo Patronato de Liberados es una cuenta especial, cuyo cálculo de recursos será incluido anualmente en la Ley de Presupuesto. Sus erogaciones serán aplicadas exclusivamente para el cumplimiento de sus fines especialmente, la asistencia social directa y los microemprendimientos laborales con sujeción a la Ley de Contabilidad.

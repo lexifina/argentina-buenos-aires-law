@@ -1,0 +1,1 @@
+ARTICULO 77 - Los procesados que presuntamente presenten trastornos mentales graves serán internados en establecimientos y/o en secciones separadas especializadas del Servicio Penitenciario, donde, en condiciones de seguridad apropiada, se desarrollará un programa que atienda la faz asistencial específica que requiera cada caso en particular.

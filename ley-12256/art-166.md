@@ -1,0 +1,3 @@
+ARTICULO 166 - El Patronato con el apoyo del Centro Coordinador Servicio Penitenciario Patronato de Liberados, realizará la tarea del pre egreso con todo condenado alojado en los establecimientos penitenciarios bonaerenses, iniciando la misma con no menos de seis (6) meses de anticipación de la fecha del posible otorgamiento de la liberación condicional, asistida o definitiva. Esta tarea podrá incluir la comunicación con sus familiares, con el fin de evaluar la futura integración.
+La reglamentación de la presente establecerá la frecuencia, el modo y la forma de ejecución. El resultado de esta tarea será remitido al Juez competente, cuando así lo requiera con motivo de resolver sobre el pedido de libertad.
+ASISTENCIA DEL LIBERADO

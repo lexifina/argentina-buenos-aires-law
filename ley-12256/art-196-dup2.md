@@ -1,0 +1,2 @@
+ARTICULO 196 – (Texto según Ley 14296) Las autoridades correspondientes del Ministerio de Justicia y Seguridad instrumentarán los mecanismos pertinentes a los fines de comunicar al Patronato de Liberados dentro de las cuarenta y ocho (48) horas de producida, toda detención de personas con el objeto de verificar si se trata de un liberado que se encuentre bajo su tutela.
+PARTICIPACION COMUNITARIA CONVENIOS

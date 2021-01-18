@@ -1,0 +1,2 @@
+ARTICULO 208 – (Texto según Ley 14296) Cuando un liberado viere de cualquier modo dificultada o impedida la obtención de una licencia, título o habilitación para el ejercicio de oficios, arte, industria, profesión o empleo por la sola razón de sus antecedentes penales, podrá por sí o a través del Patronato de Liberados solicitar al Juez de Ejecución o Juez competente que ordene a los organismos respectivos la expedición de aquéllos.
+EXPEDIENTE JUDICIAL

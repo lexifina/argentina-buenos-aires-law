@@ -1,0 +1,3 @@
+ARTICULO 18 - A fin de privilegiar la relación materno infantil en los lugares donde se alojen madres que convivan con hijos y en los casos en que el Servicio Penitenciario Bonaerense cuente con dichos establecimientos, se formará un Consejo asistido integrado por profesionales médicos pediatras, psicólogos, trabajadores sociales y docentes, quienes se ocuparán de estructurar una didáctica acorde con los principios pedagógicos científicos que permitan aplicar métodos activos, para integrar al niño a Jardines Maternales. Se brindará un ambiente físico que satisfaga los intereses y necesidades infantiles. Los niños podrán asistir a Jardines Maternales de la comunidad.
+DETENCION DOMICILIARIA
+(Título según Ley 14296)

@@ -1,0 +1,1 @@
+ARTICULO 143 - El Servicio Penitenciario procurará el apoyo docente y el equipamiento mínimo necesario para el funcionamiento de las escuelas técnicas o centros de producción, favoreciendo la obtención por parte de los internos de los elementos que mejoren sus condiciones de trabajo o el producto del mismo.

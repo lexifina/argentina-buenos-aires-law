@@ -1,0 +1,3 @@
+ARTICULO 28 – (Texto según Ley 14296) Los grupos de admisión y seguimiento tendrán por misión la evaluación integral de los procesados y condenados para proponer la ubicación y/o reubicación en los diferentes regímenes y/o modalidades.
+Cuando se tratare de condenados, los grupos de admisión y seguimiento realizarán un plan individualizado de avance en la progresividad que ofrecerá todas las alternativas de tratamiento y asistencia que estime necesarias para la consecución de los fines establecidos en el artículo 4° de la presente Ley.
+La información que produzcan los grupos de referencia será elevada a la Junta de Selección, organismo técnico asesor de la Jefatura del Servicio Penitenciario, integrado según lo establezca la reglamentación.

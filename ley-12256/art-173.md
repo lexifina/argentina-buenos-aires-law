@@ -1,0 +1,1 @@
+ARTICULO 173 - El Patronato de Liberados procurará la asistencia y tratamiento médico y/o psicológico y la provisión de medicamentos a los tutelados, mediante la derivación a entidades estatales y/o paraestatales, privadas o mixtas, con personería jurídica o legal.

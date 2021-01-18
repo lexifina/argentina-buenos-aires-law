@@ -1,0 +1,1 @@
+ARTICULO 70 - El ingreso y/o reubicación del procesado a cualquiera de las modalidades de asistencia será dispuesto por la Jefatura del Servicio Penitenciario a propuesta de la Junta de Selección en base al informe elevado por el grupo de admisión y seguimiento.

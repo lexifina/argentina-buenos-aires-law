@@ -1,0 +1,2 @@
+ARTICULO 8.- La instrumentación de los programas de asistencia y/o tratamiento, tenderá a reducir las diferencias que puedan existir entre la vida en prisión y la vida en libertad, tendiéndose a preservar o reforzar la continuidad de los vínculos familiares, educacionales y laborales. Con este fin podrá recurrirse, en lo posible, a la cooperación de instituciones de la comunidad y organismos estatales y privados nacionales o extranjeros.
+DERECHOS

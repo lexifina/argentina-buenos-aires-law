@@ -1,0 +1,1 @@
+ARTÍCULO 221. (La modificación dispuesta por Ley 14296 fue invalidada por ACORDADA 3562/11) (Texto original) Hasta el efectivo ejercicio de sus funciones por parte de los jueces de Ejecución se entenderá por juez competente a los fines de esta Ley, al magistrado a cuya disposición se encuentre el procesado o condenado.

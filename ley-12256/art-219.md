@@ -1,0 +1,1 @@
+ARTICULO 219 - El Estado Provincial, a través del Poder Ejecutivo, podrá adherir a los convenios de colaboración, reciprocidad y transferencia de condenados o liberados que el Poder Ejecutivo Nacional acuerde con otros países, siempre que su adhesión favorezca a los intereses de la provincia y sea concordante con su política penitenciaria y postpenitenciaria.

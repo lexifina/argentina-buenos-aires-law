@@ -1,0 +1,1 @@
+ARTICULO 78 - Cuando de la tarea diagnóstica surja la inexistencia de trastorno mental, o existiendo éste, el mismo no implique alto riesgo desde el punto de vista médico forense, se informará al Juez competente a los efectos del traslado del interno a otro establecimiento que posibilite su asistencia, dentro de las modalidades atenuada o estricta del régimen común de procesados.

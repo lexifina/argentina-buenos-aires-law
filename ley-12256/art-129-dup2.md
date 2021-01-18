@@ -1,0 +1,1 @@
+ARTICULO 129 - La estructuración del área convivencia, al igual que la utilización del tiempo libre, se implementará mediante mecanismos de auto regulación que aseguren la participación de los condenados en todo aquello que haga a su régimen de vida.

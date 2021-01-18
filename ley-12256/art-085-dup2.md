@@ -1,0 +1,1 @@
+ARTICULO 85 - El área de convivencia en la modalidad atenuada se estructurará en base al arbitrio de mecanismos que aseguren la participación de los internos en la planificación de todo aquello que haga al régimen de vida de los mismos, siempre que sea compatible con los reglamentos penitenciarios.

@@ -1,0 +1,1 @@
+ARTÍCULO 222. (La modificación dispuesta por Ley 14296 fue invalidada por ACORDADA 3562/11) (Texto original) No será de aplicación lo dispuesto en el artículo 15º de la presente Ley, hasta tanto la provincia no cuente con establecimientos adecuados para el cumplimiento de los fines allí previstos.

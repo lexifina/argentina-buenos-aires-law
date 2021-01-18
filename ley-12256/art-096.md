@@ -1,0 +1,1 @@
+ARTICULO 96 - El informe que produzca el grupo de admisión y seguimiento, como evaluación criminológica integral tomará como base lo consignado en el legajo de evaluación técnica periódica, dando origen al legajo de ejecución penal.

@@ -1,0 +1,1 @@
+ARTICULO 193 - Los organismos centralizados o descentralizados de la Provincia y las Municipalidades, deberán incluir a los tutelados y/o integrantes de su grupo familiar, en todo programa laboral que se instrumente para grupos protegidos, de asistencia social, capacitación laboral y educación con destino a sectores de escasos recursos.

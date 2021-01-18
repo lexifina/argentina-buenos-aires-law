@@ -1,0 +1,1 @@
+ARTICULO 99 - El Juez de Ejecución o Juez competente constituirá una instancia de apelación en las ubicaciones y/o reubicaciones en los diferentes regímenes y modalidades implementados para los condenados.

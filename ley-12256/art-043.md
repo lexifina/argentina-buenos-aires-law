@@ -1,0 +1,1 @@
+ARTICULO 43 - En ningún caso se restringirán las posibilidades de visita, trabajo o educación como complemento de una medida sancionatoria salvo los límites que pudieran surgir de los recaudos de control propios de cada régimen.

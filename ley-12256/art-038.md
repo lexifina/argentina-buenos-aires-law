@@ -1,0 +1,1 @@
+ARTICULO 38 - El Servicio Penitenciario favorecerá la implementación de programas de capacitación laboral y el desarrollo de actividades artísticas e intelectuales conforme a los diferentes regímenes previstos en la presente Ley.

@@ -1,0 +1,1 @@
+ARTICULO 16 - En los establecimientos que alberguen mujeres deberán existir instalaciones especiales para el tratamiento de las embarazadas y la atención de su parto. Cuando éste se produzca se tomarán los debidos recaudos para que no conste en la inscripción de nacimiento que ocurrió en un establecimiento penitenciario, debiéndose dar inmediato aviso al Juez de menores en turno.
