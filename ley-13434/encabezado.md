@@ -1,0 +1,4 @@
+LEY 13434
+Texto Actualizado con las modificaciones introducidas por Ley 13727 y 14207.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
