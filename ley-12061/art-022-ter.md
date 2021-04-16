@@ -1,0 +1,4 @@
+Artículo 22 ter. - (Incorporado por Ley 12.406) Sin perjuicio de la asignación específica a los Fueros Civil, Comercial y de Familia o Criminal y Correccional, otorgada por la Ley 12.367, el Procurador General de la Suprema Corte de Justicia dispondrá, en forma definitiva, la competencia exclusiva con que actuarán los Defensores Oficiales que detentan, a la fecha de la sanción de la presente, la competencia mixta.
+Dicha determinación deberá respetar la composición final del Ministerio Público de la Defensa de cada Departamento Judicial, incorporada por la norma supra citada. A tal efecto autorízase al Poder Ejecutivo a modificar, oportunamente, la solicitud de cobertura de los cargos creados por la Ley 12.367, por ante el Consejo de la Magistratura, conforme el requerimiento que de ellos haga el señor Procurador General de la Suprema Corte de Justicia
+CAPITULO IV
+ASESORES DE INCAPACES
