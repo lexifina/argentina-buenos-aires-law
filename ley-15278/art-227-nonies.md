@@ -1,0 +1,2 @@
+Artículo 227 nonies. Facúltase a la Agencia de Recaudación de la Provincia de Buenos Aires para dictar las normas reglamentarias y/o complementarias necesarias para implementar las disposiciones del Régimen Simplificado del Impuesto sobre los Ingresos Brutos.
+Asimismo, queda facultada para efectuar de oficio aquellas modificaciones del régimen de tributación de los contribuyentes inscriptos en el Impuesto sobre los Ingresos Brutos con anterioridad a la entrada en vigencia del presente Capítulo, a efectos de su encuadramiento en el mismo.
