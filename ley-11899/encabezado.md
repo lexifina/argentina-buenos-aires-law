@@ -1,0 +1,5 @@
+LEY 11899
+Creándose el Programa de Fomento Ganadero de la Provincia de Buenos Aires (PROGABA)
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES
+SANCIONAN CON FUERZA DE
+LEY
