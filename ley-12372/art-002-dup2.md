@@ -1,0 +1,1 @@
+ARTICULO 2.- Obsérvase, en el Anexo I que forma parte integrante del proyecto de ley mencionado en el artículo precedente, la inclusión de la Obra Puerto Quequén del partido de Necochea con un presupuesto estimado de pesos veinticuatro millones ( $ 24.000.000).
