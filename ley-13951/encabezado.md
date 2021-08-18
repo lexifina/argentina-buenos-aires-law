@@ -1,0 +1,6 @@
+NOTA:Ver Decreto 600/2021, reglamenta la presente Ley.
+LEY 13951
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
+Texto Actualizado con las modificaciónes introducidas por la Ley 15078 y Ley 15182
+DISPOSICIONES PRELIMINARES
