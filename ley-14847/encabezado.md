@@ -1,0 +1,4 @@
+LEY 14847
+Texto Actualizado con las modificaciones introducidas por Ley 15040.
+EL SENADO Y LA CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
