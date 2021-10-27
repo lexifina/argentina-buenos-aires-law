@@ -1,0 +1,1 @@
+ARTÍCULO 1° BIS.-(Artículo Incorporado por Ley 15006) Transfiérese dentro del perímetro delimitado en el Anexo II la propiedad de todas las parcelas de propiedad fiscal provincial, las que figuran enunciadas en el Anexo I, apartado 2.
