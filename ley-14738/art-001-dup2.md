@@ -1,0 +1,2 @@
+Artículo 1º.- Créase en el ámbito de la Provincia de Buenos Aires, el Programa Provincial que garantiza las políticas orientadas a la promoción, y desarrollo de la Salud Reproductiva y la Procreación Responsable.
+La presente Ley encuentra su sustento jurídico en el art. 16 inciso e) de la Ley Nacional 23.179 y en el Derecho Humano Básico de toda persona a mantener y restituir su salud, como también a proteger a la familia, considerada ésta como una sociedad natural existente antes que el propio Estado.
