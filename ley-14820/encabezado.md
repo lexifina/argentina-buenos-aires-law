@@ -1,0 +1,4 @@
+LEY 14820
+Texto Actualizado con la modificación introducida por las Ley 15148
+EL SENADO Y LA CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
