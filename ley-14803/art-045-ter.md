@@ -1,0 +1,1 @@
+ARTÍCULO 45 ter.- (Texto incorporado según Ley 14805) El Organismo Provincial de la Niñez y Adolescencia tendrá el carácter de sucesor institucional de la Ex Secretaría de la Niñez y Adolescencia, y estará a cargo de un Director Ejecutivo, designado por el Poder Ejecutivo, con rango equivalente a Secretario.
