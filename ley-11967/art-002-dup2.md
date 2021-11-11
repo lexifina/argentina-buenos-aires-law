@@ -1,0 +1,2 @@
+ARTICULO 2.- Incorpórase como artículo 31 bis de la Ley 8.085 - Enjuiciamiento de magistrados, el siguiente:
+"Art. 31 bis - Las resoluciones adoptadas por los Jurados de Enjuiciamiento que hicieran lugar a la formación de causa se comunicarán al Poder Ejecutivo, quien se abstendrá de aceptar las renuncias presentadas por magistrados o funcionarios sometidos a proceso de enjuiciamiento hasta tanto el Jurado no se haya expedido condenándolo o absolviéndolo de las faltas o delitos que se le imputen."
