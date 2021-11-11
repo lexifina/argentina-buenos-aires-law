@@ -1,0 +1,5 @@
+ARTÍCULO 29 bis. (Texto según Ley 15031) (Artículo Incorporado por Ley 14441) En cualquier estado del proceso anterior a la suspensión, si existieran elementos probatorios que hicieran verosímiles los hechos denunciados y si la naturaleza y gravedad de los mismos tornare inadmisible la permanencia en el ejercicio de la función del denunciado, o si ello pudiera perjudicar o entorpecer irreparablemente la investigación, previa vista al interesado por el término de cinco (5) días, el Jurado podrá disponer su apartamiento preventivo del cargo. Tal medida, que será de interpretación restrictiva, deberá ser debidamente fundamentada.
+La medida podrá prolongarse hasta la celebración de la sesión prevista en el artículo 34, y será revisada cada noventa (90) días.
+Lo dispuesto en los párrafos anteriores es sin perjuicio de las atribuciones de la Suprema Corte de Justicia de licenciar al magistrado por el tiempo que demande que el jurado se expida al respecto.
+CAPITULO IV
+DE LA ACUSACION
