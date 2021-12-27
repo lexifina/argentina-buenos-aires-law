@@ -1,0 +1,6 @@
+ARTÍCULO 53 ter.- (Artículo Incorporado por Ley 13829) Sanción procesal por falta de pago. Cuando el empleador en mora, fehacientemente intimado por el trabajador, no abonare salarios, asignaciones familiares o rubros denominados no remunerativos (y sus diferencias) obligando al acreedor a promover acciones judiciales -a pedido de parte o de oficio- en sentencia, los montos resultantes de dicho capital serán incrementados en un treinta (30) por ciento .
+A tales fines, al disponer el traslado del artículo 28 el Tribunal emplazará al accionado para que al tiempo de contestar demanda, satisfaga los créditos que adeude, bajo apercibimiento de serle aplicada la sanción dispuesta en el párrafo anterior, en el eventual supuesto que en sentencia fuera declarada procedente la petición del trabajador.
+Si hubieran existido causas justificadas para la omisión del empleador, los jueces, prudencialmente, podrán reducir la sanción dispuesta por el primer párrafo hasta la mitad del porcentaje indicado.
+CAPITULO VII
+RECURSO
+REVOCATORIA
