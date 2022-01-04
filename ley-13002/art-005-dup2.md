@@ -1,0 +1,1 @@
+Artículo 5.- Un Consejo de Administración integrado por tres (3) miembros representantes del Ministerio de Infraestructura, Vivienda y Servicios Públicos, que funcionará en el ámbito de dicho Ministerio, será el encargado de convenir con el Fiduciario, las obligaciones que competen a éste en el cumplimiento de la administración del Fondo”.
