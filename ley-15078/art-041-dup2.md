@@ -1,0 +1,4 @@
+ARTÍCULO 41.- Convalidanse:
+1) La no aplicación de las disposiciones de la Ley Nº 12234 al Ejercicio 2018.
+2) En los términos del Artículo 39 de la Ley Nº 13767, para todas las jurisdicciones y organismos descentralizados a que aluden los Artículos 1º y 2º de la Ley Nº 14982, las erogaciones que se contabilicen al Cierre del Ejercicio 2018 en Gastos de Personal y otros conceptos vinculados por sobre los créditos presupuestarios vigentes para dichos conceptos. Extender los alcances del presente inciso a los mayores gastos que al cierre del Ejercicio 2018 se contabilicen por sobre los créditos presupuestarios vigentes, en el Inciso Transferencias, originados exclusivamente por erogaciones de la Dirección General de Cultura y Educación por subsidios a la enseñanza no oficial para la equiparación de docentes.
+3) La aplicación del Decreto Nº 311/18 E -Reubicación excepcional del personal de vialidad-.
