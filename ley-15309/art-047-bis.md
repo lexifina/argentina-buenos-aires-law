@@ -1,0 +1,13 @@
+ARTÍCULO 47 BIS.- El Instituto Cultural de la Provincia de Buenos Aires, como entidad autárquica de derecho público, con dependencia directa del Poder Ejecutivo, tendrá capacidad para actuar de forma pública y/o privada dentro del ámbito de la competencia que le asigna la presente ley. En especial, le compete:
+1. Entender en el derecho a la cultura por parte de todos los habitantes de la Provincia, garantizando tanto el acceso al derecho a los bienes culturales materiales e inmateriales, como el derecho a la producción de cultura desde las prácticas que el pueblo realiza.
+2. Entender en la promoción de las manifestaciones culturales que afirmen la identidad local, regional, provincial y nacional, considerando la diversidad, heterogeneidad e interculturalidad que es propia a toda configuración identitaria.
+3. Entender en el diseño de las políticas provinciales en materia de conservación, promoción, enriquecimiento, difusión y extensión del patrimonio histórico y artístico-cultural de la provincia de Buenos Aires.
+4. Entender en el acceso a las actividades artístico-culturales de los habitantes de la Provincia, en la totalidad de sus manifestaciones, atendiendo a la descentralización y distribución equitativa de los medios de producción cultural, favoreciendo la integración provincial.
+5. Coordinar en el funcionamiento de los organismos contemplados en la Ley N° 12.268 y del Archivo Histórico Provincial, Museos y Bibliotecas Provinciales.
+6. Entender en la conservación, protección y difusión del Patrimonio histórico y artístico-cultural.
+7. Intervenir en la organización, dirección y supervisión del desarrollo de actividades artístico-culturales en todo el territorio provincial.
+8. Entender en el fomento y estímulo de la investigación, producción y creación de los valores artístico-culturales locales.
+9. Coordinar los mecanismos de organización regional, en el ámbito de su competencia, garantizando la participación efectiva de municipios e instituciones intermedias en la implementación de programas culturales.
+10. Intervenir en la promoción de acciones específicas para el desarrollo de las distintas actividades artísticas, estableciendo programas de estímulos, premios, becas, subsidios y créditos para el fomento de las mismas.
+11Intervenir en la proyección de la producción cultural provincial en los ámbitos regional, nacional e internacional, estimulando la labor de las entidades y organismos privados que desarrollen tales actividades en la Provincia.
+12. Entender en todo lo inherente a las políticas de promoción y desarrollo de industrias creativas y culturales.
