@@ -1,0 +1,2 @@
+ARTÍCULO 6º bis: (Artículo Incorporado por Ley 14333) Los transportistas de residuos patogénicos que se inscriban en el Registro respectivo, conforme con las pautas que establezca la reglamentación de la presente, abonarán por única vez una tasa por dicha inscripción.
+Asimismo deberán abonar una tasa por la autorización de cada vehículo afectado al transporte de residuos patogénicos. Los valores de las tasas que por este artículo se crean serán fijados por la Ley Impositiva.
