@@ -1,0 +1,1 @@
+ARTICULO 6°. Observar en el artículo 100 que modifica el inciso h) del artículo 35 de la Ley Nº 13.298, las siguientes frases: “…con citación y audiencia de los representantes legales…” y “…en el plazo de setenta y dos (72) horas…”.

@@ -1,0 +1,1 @@
+Artículo 2 bis: Son funcionarios del Poder Judicial: los Consejeros de Familia con desempeño en los Juzgados correspondientes, quienes deberán satisfacer los mismos requisitos y condiciones que los miembros del Ministerio Público de Primera Instancia y tendrán jerarquía presupuestaria de Secretarios de Cámara.

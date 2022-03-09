@@ -1,0 +1,1 @@
+Artículo 52: Los Juzgados de Garantías y de Garantías del Joven, ejercerán la competencia que les asigna el artículo 23° de la Ley 11.922, respecto de la etapa penal preparatoria en todas las causas correccionales y criminales en que se investiguen delitos cometidos en el territorio de la Provincia de Buenos Aires.”
