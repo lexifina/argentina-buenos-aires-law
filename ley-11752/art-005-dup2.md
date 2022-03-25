@@ -1,0 +1,6 @@
+ARTICULO 5°.- Las acreencias que por cualquier motivo, existan a favor de estos Municipios, transferidas a este sistema por el Artículo 19° inc. a) de la presente ley, serán consolidadas y podrán ser canceladas en las siguientes condiciones:
+a) Monto: aquel que surja de la Liquidación efectuada por el Municipio.
+b) Plazo Máximo: cuarenta y ocho (48) meses.
+c) Amortización de Capital: En cuotas mensuales iguales y consecutivas.
+d) Servicios de Intereses: En forma coincidente con cada cuota de capital, calculados sobre saldos por aplicación de la tasa activa vigente en el Banco de la Provincia de Buenos Aires para el ítem “Restantes, Operaciones” o aquella que la reemplace en el futuro.
+e) Destino del Recupero: Hasta la extinción total de las obligaciones comunales consolidadas en la presente Ley ingresarán a una cuenta fiscal abierta en el Banco de la Provincia de Buenos Aires a nombre de la Municipalidad respectiva y a disposición exclusiva de dicha entidad financiera para atender los servicios de la deuda. Los saldos que registre dicha cuenta fiscal serán incorporados a la base de cálculo prevista en la Ley 10.753, exclusivamente para la determinación de las rentas pasivas que la misma establece.

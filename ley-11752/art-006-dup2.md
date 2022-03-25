@@ -1,0 +1,1 @@
+ARTICULO 6°.- La administración del sistema detallado en el presente Anexo, estará a cargo del Banco de la Provincia de Buenos Aires, que asumirá el carácter de Agente Financiero. Estarán a su cargo los aspectos operativos relacionados con la emisión, seguimiento y liquidación del bono, como del recupero de las acreencias.

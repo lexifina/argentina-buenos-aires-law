@@ -1,0 +1,1 @@
+ARTICULO 7°.- Facúltase al Organismo de Aplicación respectivo, a celebrar los pertinentes acuerdos con el Banco de la Provincia de Buenos Aires a los efectos previstos en la presente Ley y/o convenir con dicha entidad la remuneración a oblar por su intervención.

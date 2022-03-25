@@ -1,0 +1,2 @@
+ARTICULO 1°.- Dispónese la Emisión de Bonos de Saneamiento Financiero de las Municipalidades alcanzadas por la presente ley, que serán suscriptos por el Departamento Ejecutivo del Municipio que corresponda, en su carácter de deudores únicos y principales, siendo garantizado el pago de los mismos por la Coparticipación Municipal, a cuyo fin queda autorizada la Provincia a retener los aportes necesarios.
+El monto de la emisión no podrá superar el equivalente, del (80%) ochenta por ciento del Cálculo de recursos del Municipio respectivo.
