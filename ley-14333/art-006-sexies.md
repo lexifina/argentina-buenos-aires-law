@@ -1,0 +1,1 @@
+ARTÍCULO 6º sexies: Los centros de tratamiento y disposición final de residuos patogénicos abonarán una tasa en concepto de autorización ambiental, denegatoria y renovación cuyo valor será fijado por la Ley Impositiva.”

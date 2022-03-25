@@ -1,0 +1,5 @@
+ARTÍCULO 10 bis. (Artículo Incorporado por Ley 14357) Otórgase un crédito fiscal materializado en forma de descuento del cien por ciento (100%) del impuesto Inmobiliario a los edificios pertenecientes a la Planta Rural y Subrural, en los siguientes términos:
+a) Para aquellos edificios cuya valuación fiscal no supere la suma de pesos dieciséis mil quinientos cuarenta ($16.540).
+El descuento establecido en el párrafo anterior se aplicará exclusivamente a las personas físicas y sucesiones indivisas que resulten contribuyentes del gravamen, por ese único inmueble.
+b) (Ver Ley 14394 que deja sin efecto, durante el Ejercicio 2012, lo dispuesto en el presente inciso)Para aquellos edificios pertenecientes a establecimientos productivos destinados a actividad agropecuaria y/o manufacturera. Este descuento se aplicará a quienes resulten contribuyentes del Impuesto.
+La Agencia de Recaudación de la provincia de Buenos Aires establecerá las condiciones para la aplicación del beneficio contemplado en este artículo, quedando facultada a dictar las normas que resulten necesarias a tales efectos.
