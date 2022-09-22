@@ -1,0 +1,5 @@
+LEY 10586
+Texto Actualizado con las modificaciones introducidas por Leyes 11066 y 12692
+Ver Ley 10651
+EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
