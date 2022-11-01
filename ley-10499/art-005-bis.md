@@ -1,0 +1,1 @@
+ARTICULO 5° BIS.- (Artículo incorporado por Ley 15375) Los establecimientos gastronómicos, bares, restaurantes y confiterías habilitados legalmente, deberán ofrecer al menos, dos (2) opciones de alimentos libres de gluten (sin TACC) destinado a personas con celiaquía.
