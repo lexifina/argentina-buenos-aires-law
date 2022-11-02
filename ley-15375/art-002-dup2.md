@@ -1,0 +1,2 @@
+ARTÍCULO 2°: Incorpórase como artículo 5 bis a la Ley N° 10.499 y modificatorias -Declarando de Interés Provincial Estudios de Prevención, Tratamiento e Investigación de Enfermedad Celíaca -, el siguiente:
+“Artículo 5° bis: Los establecimientos gastronómicos, bares, restaurantes y confiterías habilitados legalmente, deberán ofrecer al menos, dos (2) opciones de alimentos libres de gluten (sin TACC) destinado a personas con celiaquía.”

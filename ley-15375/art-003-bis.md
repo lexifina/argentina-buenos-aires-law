@@ -1,0 +1,1 @@
+Artículo 3° bis: Establécese como metodología de certificación de productos alimenticios aptos para el consumo por las personas con celiaquía aquella que, cumpliendo con las sugerencias de la comisión de Codex Alimentarius de la OMS, presente la mayor especificidad y el límite de detección más bajo posible.”
