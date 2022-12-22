@@ -1,0 +1,1 @@
+Artículo 1º - Obsérvase en el artículo 24 -nivel 20- del Proyecto de Ley sancionado por la Honorable Legislatura, en fecha 18 de diciembre del año 1997, al que hace referencia el Visto del presente, la expresión: "Fiscal Adjunto de Tribunal de Casación Penal y Defensor Adjunto de Tribunal de Casación Penal".
