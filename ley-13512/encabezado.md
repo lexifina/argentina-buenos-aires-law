@@ -1,0 +1,4 @@
+LEY 13512
+Texto actualizado con las modificaciones introducidas por Ley 15394
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
