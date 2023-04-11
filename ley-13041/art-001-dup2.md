@@ -1,0 +1,1 @@
+Artículo 1º: Obsérvase en el artículo 1º del Proyecto de Ley sancionado por la Honorable Legislatura con fecha cinco de marzo del corriente año la expresión "... cuyo dominio pertenece al Estado Provincial"
