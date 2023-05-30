@@ -1,0 +1,1 @@
+Artículo 12. A los efectos de la aplicación de la presente Ley, el gobierno reconocerá como Certificador Licenciado a aquéllos que contando con la aprobación nacional se avengan a encuadrarse en la normativa que regula la infraestructura de firma digital de la Provincia de Buenos Aires, en los términos y condiciones que establezca la reglamentación de la presente.
