@@ -1,0 +1,1 @@
+ARTÍCULO 8° ter: (Artículo Incorporado por Ley 14509) Regirá el principio de amplia libertad probatoria para acreditar los hechos denunciados, evaluándose las pruebas ofrecidas de acuerdo con el principio de sana crítica. Se considerarán las presunciones que contribuyan a la demostración de los hechos, siempre que sean indicios graves, precisos y concordantes.

@@ -1,0 +1,1 @@
+ARTÍCULO 14 bis: (Artículo Incorporado por Ley 14509) El/la juez/a podrá solicitar o aceptar la colaboración de organizaciones o entidades públicas o privadas dedicadas a la protección de los derechos de las mujeres y demás personas amparadas por la presente.
