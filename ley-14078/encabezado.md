@@ -1,0 +1,10 @@
+LEY 14078
+Texto Actualizado con las modificaciones introducidas por las Leyes 14595, 14748, 14853, 15229 y 15477.
+La Ley 14853 se encuentra DEROGADA. Ver Ley de Ministerios vigente.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE
+BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
+TÍTULO I
+DEL REGISTRO
+CAPÍTULO ÚNICO
+MISIÓN Y OBJETIVO

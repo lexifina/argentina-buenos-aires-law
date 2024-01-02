@@ -1,0 +1,1 @@
+ARTÍCULO 122 BIS: (Incorporado por Ley 14595) Las personas que requieran la rectificación registral de su sexo, el cambio de nombre de pila e imagen, de conformidad con lo dispuesto en la Ley Nacional 26.743, podrán presentarse ante la Delegación del Registro de las Personas más cercana a su domicilio o en la Delegación en la cual se encuentra asentado su nacimiento.
