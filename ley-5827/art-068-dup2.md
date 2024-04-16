@@ -1,0 +1,1 @@
+ARTÍCULO 68 quáter: (Texto Incorporado por Ley 12060) Son aplicable a los Jueces de los Tribunales en lo Criminal las disposiciones relativas a las calidades, forma de designación, remoción, garantías, obligaciones, deberes y atribuciones que rigen para los Jueces de Primera Instancia.

@@ -1,0 +1,1 @@
+ARTÍCULO 54 ter: (Texto Incorporado por la Ley 11453) Los Tribunales de Familia tendrán un (1) Presidente que será Juez de Trámite, un (1) Vicepresidente y un (1) Vocal. La Presidencia será ejercida rotativamente en forma anual, comenzándose por el Juez más antiguo en la función y, en caso de igual antigüedad por el de mayor edad. Los restantes cargos operarán de la misma manera.
