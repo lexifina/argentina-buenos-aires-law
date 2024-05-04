@@ -1,0 +1,4 @@
+LEY 15.485
+Nota: el Decreto Nº 2475/25 prorroga la emergencia declarada por la presente.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
