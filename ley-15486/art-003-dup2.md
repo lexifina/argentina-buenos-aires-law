@@ -1,0 +1,1 @@
+ARTÍCULO 3.- El Comité de la Cuenca Hídrica Arroyo San Francisco – Las Piedras se encuentra plenamente capacitado para adquirir bienes inmuebles y semovientes, enajenarlos, permutarlos, venderlos, como así también realizar canto acto jurídico sea necesario o conveniente para el cumplimiento de su objeto.

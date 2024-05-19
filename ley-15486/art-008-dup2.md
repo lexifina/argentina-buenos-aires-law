@@ -1,0 +1,1 @@
+ARTÍCULO 8.- Las reuniones del Directorio se celebrarán válidamente con la presencia de la mitad más uno de los miembros del mismo, requiriéndose para las resoluciones el voto de la mayoría simple de los presentes.
