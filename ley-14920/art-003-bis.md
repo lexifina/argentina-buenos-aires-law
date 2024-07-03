@@ -1,0 +1,1 @@
+ARTÍCULO 3° BIS.- (Artículo Incorporado por Ley 15017) A las contrataciones sujetas a la presente ley, no les serán de aplicación directa, supletoria, ni analógica, la Ley N° 13981, ni el Decreto-Ley N° 9254/79, por tratarse de un régimen de contratación autónomo y alternativo a los regulados por dichas normas.
