@@ -1,0 +1,1 @@
+ARTÍCULO 3º.- El COMILU se encuentra plenamente capacitado para adquirir bienes inmuebles y semovientes; enajenarlos, permutarlos, venderlos, como así también realizar cuanto acto jurídico sea necesario o conveniente para el cumplimiento de su objeto.

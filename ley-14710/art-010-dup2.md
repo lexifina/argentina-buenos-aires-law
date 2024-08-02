@@ -1,0 +1,1 @@
+ARTÍCULO 10.- Cada miembro tendrá derecho a un voto y las reuniones del DIRECTORIO se celebrarán válidamente con la presencia de la mitad más uno de los miembros del mismo, requiriéndose para las resoluciones el voto de la mayoría simple de los presentes. El presidente tendrá voto, el que se computará como doble ante supuestos de empate.

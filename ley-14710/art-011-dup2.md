@@ -1,0 +1,1 @@
+ARTÍCULO 11.- En casos en que el Presidente no pueda concurrir a la sesión convocada, por imposibilidad o ausencia justificada, la Presidencia recaerá en el Vicepresidente o, en su caso, en el representante del Poder Ejecutivo del COMILU que designe el Presidente.

@@ -1,0 +1,1 @@
+ARTÍCULO 9º.- El DIRECTORIO del COMILU se reunirá en sesión ordinaria con la frecuencia que se establezca en cada reunión, no pudiendo superar el plazo máximo de dos meses desde la última reunión. Podrán celebrarse reuniones extraordinarias por iniciativa propia del presidente o del pedido fundado de tres miembros de ese cuerpo.

@@ -1,0 +1,4 @@
+LEY 14710
+Texto Actualizado con las modificaciones introducidas por Ley 14817.
+EL SENADO Y LA CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY

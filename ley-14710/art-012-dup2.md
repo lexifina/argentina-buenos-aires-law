@@ -1,0 +1,1 @@
+ARTÍCULO 12.- En caso de no obtenerse el quórum y mediando circunstancias de urgencia que requieran un tratamiento expedito, el DIRECTORIO podrá sesionar con la participación de un representante comunal y dos del ejecutivo provincial. Esta excepcionalidad deberá estar debidamente fundada en la convocatoria.
