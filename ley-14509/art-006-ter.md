@@ -1,0 +1,2 @@
+Artículo 6 ter: En cualquier instancia del proceso se admitirá la presencia de un/a acompañante como ayuda protectora de la mujer, siempre que quien padece violencia lo solicite y con el único objeto de preservar la salud física y psicológica de la misma.
+En todas las intervenciones, tanto judiciales como administrativas, deberán observarse los derechos y garantías mínimas de procedimiento enumeradas en el Art. 16 de la Ley N° 26485.

@@ -1,0 +1,1 @@
+Artículo 8° bis: La Jueza o Juez tendrá amplias facultades para ordenar e impulsar el proceso pudiendo disponer las medidas que fueren necesarias para indagar los sucesos, ubicar el paradero del presunto agresor, y proteger a quienes corran el riesgo de padecer nuevos actos de violencia, rigiendo el principio de obtención de la verdad material.

@@ -1,0 +1,1 @@
+ARTÍCULO 4º: El Poder Ejecutivo adecuará la reglamentación en un plazo no superior a noventa (90) días y ordenará la publicación de la presente ley con su decreto reglamentario, juntamente con el texto íntegro de la Ley N° 26485.
