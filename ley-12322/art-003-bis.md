@@ -1,0 +1,1 @@
+ARTÍCULO 3 BIS.- (Incorporado por Ley 12.643) No obstante las exenciones dispuestas en el artículo 3°, cuando las actividades productivas allí descriptas se desarrollaren en la zona regable de CORFO Río Colorado, la mismas se limitarán al cincuenta (50) por ciento de los importes correspondientes a los impuestos allí referidos.
