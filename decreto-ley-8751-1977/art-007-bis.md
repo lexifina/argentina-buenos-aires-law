@@ -1,0 +1,1 @@
+Artículo 7º bis: (Incorporado por Ley 11.723) La sanción de arresto podrá elevarse a noventa (90) días en los casos que como resultado directo o indirecto de las emisiones, descargas, vuelcos, o vertidos de cualquier naturaleza (residuos sólidos, líquidos, gaseosos), se ocasionare perjuicio o se generare situación de peligro para el medio ambiente y/o la salud de las personas.
