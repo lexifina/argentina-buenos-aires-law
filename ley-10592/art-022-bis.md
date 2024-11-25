@@ -1,0 +1,1 @@
+ARTÍCULO 22 bis.- (ARTÍCULO INCORPORADO POR LEY 14089) Toda repartición de turismo deberá contar con la información sobre las frecuencias y número telefónico a que se refiere el artículo 22 de la presente Ley.
