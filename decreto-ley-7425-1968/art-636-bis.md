@@ -1,0 +1,3 @@
+ARTÍCULO 636 bis: (Artículo incorporado por Ley 15513) Alimentos provisorios. Los alimentos provisorios deben fijarse en el primer auto, salvo que sean solicitados con posterioridad, en un plazo no mayor a cinco (5) días. Ante el incumplimiento del pago el juez aplicará la multa prevista en el inciso 1° del artículo 637 e informará al Registro de Deudores Alimentarios Morosos en los términos y condiciones establecidos en la Ley N° 13.074.
+Para la fijación de su cuantía será de aplicación lo dispuesto en el último párrafo del artículo 641.
+Asimismo, podrá ordenar cualquier otra medida razonable que garantice su efectividad y ejecución de lo resuelto en la sentencia.

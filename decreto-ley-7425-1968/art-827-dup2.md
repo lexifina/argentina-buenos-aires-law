@@ -1,0 +1,2 @@
+ARTÍCULO 827°: Vigencia temporal. Las disposiciones de este Código entrarán en vigor el primero de febrero de 1.969, y serán aplicables a todos los juicios que se iniciaren a partir de esa fecha.
+Se aplicarán también a los juicios pendientes, con excepción de los trámites, diligencias y plazos, que hayan tenido principio de ejecución o empezado su curso, los cuales se regirán por las disposiciones hasta entonces aplicables, salvo lo dispuesto en el artículo 832°.

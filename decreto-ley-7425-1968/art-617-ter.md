@@ -1,0 +1,5 @@
+ARTÍCULO 617 ter.- (Artículo incorporado por Ley 13224) OPOSICION A LA EJECUCION DE REPARACIONES URGENTES: Cuando deterioros o averías producidos en un edificio o unidad ocasione grave daño a otro, y el ocupante del primero se opusiere a realizar o permitir que se ejecuten las reparaciones necesarias para hacer cesar la causa del perjuicio, el propietario, copropietario o inquilino directamente afectados o, en su caso, el administrador del consorcio o el usufructuario o todo aquél que ejerza la tenencia del inmueble, podrá requerir que se tomen medidas y se lleven a cabo los trabajos que sean necesarios, disponiéndose el allanamiento de domicilio, si fuere indispensable. La petición tramitará sin forma de juicio, con la sola audiencia de los interesados y el informe técnico que deberá acompañarse al escrito inicial. La resolución del juez es inapelable. En su caso podrán imponerse sanciones conminatorias.
+TÍTULO II
+PROCESOS DE DECLARACIÓN DE INCAPACIDAD E INHABILITACIÓN
+CAPÍTULO I
+DECLARACIÓN DE DEMENCIA
