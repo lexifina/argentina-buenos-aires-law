@@ -1,0 +1,2 @@
+ARTÍCULO 3 bis.- (Artículo incorporado por Ley 13074) Quienes resulten solidariamente responsables del pago de la deuda alimentaria en los términos del artículo 551 del Código Civil y Comercial de la Nación, previa intimación fehaciente acerca de los motivos del incumplimiento, deberán ser inscriptos inmediatamente por orden judicial, de oficio o a solicitud de parte, en el Registro de Deudores Alimentarios Morosos.
+DEL PEDIDO DE INFORMES
