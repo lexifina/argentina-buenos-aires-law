@@ -1,0 +1,1 @@
+ARTICULO 86 bis. (Artículo incorporado por Ley 14814) Se gozará de una licencia de dos (2) días hábiles al año, con goce íntegro de haberes, para someterse a la realización de exámenes médicos de prevención del cáncer génito-mamario, de próstata y/o de colon. La realización de esos exámenes se acreditará mediante la presentación de certificado médico.
