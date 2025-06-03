@@ -1,0 +1,1 @@
+ARTÍCULO 7º bis: (Artículo Incorporado por Ley 14206) Los miembros que conforman el Directorio Administrador, deberán cumplir con todas las disposiciones legales, que hacen a su función, por su carácter de administradores de bienes públicos, se encuentran alcanzados por lo dispuesto en el artículo 1112 del Código Civil.
