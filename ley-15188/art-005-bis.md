@@ -1,0 +1,1 @@
+Artículo 5° bis.- (Incorporado por Ley 15525) Se reconoce el derecho de toda mujer y/o persona gestante a recibir acompañamiento y asistencia de un profesional en la Puericultura antes, durante y después del parto, con especial énfasis en el fomento y apoyo a la lactancia humana, con el fin de promover su bienestar físico, emocional y el de su hijo/a.
