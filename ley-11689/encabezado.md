@@ -1,0 +1,4 @@
+LEY 11689
+Texto actualizado con las modificaciones introducidas por Ley Nº 15524
+EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
