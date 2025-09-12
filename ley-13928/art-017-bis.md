@@ -1,0 +1,2 @@
+ARTÍCULO 17 Bis: (Artículo Incorporado por Ley 14192) En las acciones de amparo que se dirijan contra acciones u omisiones, en el ejercicio de funciones administrativas, de los órganos de la Provincia, los Municipios, los entes descentralizados y otras personas, regidas por el Derecho Administrativo será Tribunal de Alzada la Cámara en lo Contencioso Administrativo correspondiente a la jurisdicción donde tramitara la acción.
+CAPÍTULO IX
