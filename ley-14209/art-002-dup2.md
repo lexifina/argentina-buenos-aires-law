@@ -1,0 +1,8 @@
+Artículo 2°
+El turismo, instrumento de desarrollo personal y colectivo
+1. El turismo, que es una actividad generalmente asociada al descanso, a la diversión, al deporte y al acceso a la cultura y a la naturaleza, debe concebirse y practicarse como un medio privilegiado de desarrollo individual y colectivo. Si se lleva a cabo con la apertura de espíritu necesaria, es un factor insustituible de autoeducación, tolerancia mutua y aprendizaje de las legítimas diferencias entre pueblos y culturas y de su diversidad.
+2. Las actividades turísticas respetarán la igualdad de hombres y mujeres. Asimismo, se encaminarán a promover los derechos humanos y, en particular, los derechos específicos de los grupos de población más vulnerables, especialmente los niños, las personas mayores y minusválidas, las minorías étnicas y los pueblos autóctonos.
+3. La explotación de seres huma nos, en cualquiera de sus formas, especialmente la sexual, y en particular cuando afecta a los niños, vulnera los objetivos fundamentales del turismo y constituye una negación de su esencia. Por lo tanto, conforme al derecho internacional, debe combatirse sin reservas con la cooperación de todos los Estados interesados, y sancionarse con rigor en las legislaciones nacionales de los países visitados y de los países de los autores de esos actos, incluso cuando se hayan cometido en el extranjero.
+4. Los desplazamientos por motivos de religión, salud, educación e intercambio cultural
+o lingüístico constituyen formas particularmente interesantes de turismo, y merecen fomentarse.
+5. Se favorecerá la introducción en los programas de estudios de la enseñanza del valor de los inter cambios turísticos, de sus beneficios económicos, sociales y culturales, y también de sus riesgos.
