@@ -1,0 +1,1 @@
+ARTÍCULO 71 bis.- (artículo incorporado por Ley 15164) (Texto según Ley 15477) La/el Subsecretaria/o de Planeamiento interviene en todos los procesos de planeamiento de las políticas educativas y procesos de investigación y evaluación de manera de que las mismas se orienten al fortalecimiento del sistema educativo provincial.
