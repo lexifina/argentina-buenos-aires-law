@@ -1,0 +1,4 @@
+LEY 10551
+- Texto actualizado con las modificaciones introducidas por las Leyes 11607, 12468 Y 12620, 13882 y 15559.
+EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES,
+SANCIONAN CON FUERZA DE LEY
