@@ -1,0 +1,4 @@
+LEY 13942
+Texto Actualizado con las modificaciones introducidas por Ley 15557
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
