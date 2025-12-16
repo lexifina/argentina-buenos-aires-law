@@ -1,0 +1,1 @@
+ARTICULO 1.- Obsérvase en el artículo 1 del proyecto de ley sancionado, por la Honorable Legislatura, con fecha 3 de diciembre del 2002, al que hace referencia el Visto del presente la frase "con cargo a rentas generales".
