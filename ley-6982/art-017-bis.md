@@ -1,0 +1,1 @@
+ARTÍCULO 17 bis: (Artículo INCORPORADO por Ley 13965) Quedan excluidos de la obligatoriedad que fija el artículo 16, los Legisladores, los Jueces del Poder Judicial, el Procurador y el Subprocurador General de la Suprema Corte de Justicia alcanzados por dicho régimen en razón de ejercer funciones de docencia o investigación.
