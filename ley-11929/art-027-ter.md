@@ -1,0 +1,1 @@
+ARTICULO 27° ter : (Incorporado por Ley 12.529) Para los supuestos previstos en el presente Título, será de aplicación la normativa prevista por el Decreto-Ley 7647/70, Ley de Procedimiento Administrativo.

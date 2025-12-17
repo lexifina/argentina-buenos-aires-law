@@ -1,0 +1,8 @@
+ARTICULO 27° quinquies: (Artículo incorporado por Ley 13578) Serán facultades del Registro Público de las actuaciones administrativas:
+1. Registrar todos los datos de las personas, contra las cuales se hayan labrado actuaciones o denuncias.
+2. Velar por el cumplimiento de las medidas cautelares policiales y de concurrencia a la comisaría del domicilio, en días y horarios de competencia deportiva, de todos los infractores durante el período de vigencia de las mismas.
+3. Solicitar a las entidades deportivas y lugares de realización de espectáculos públicos la prohibición de ingreso a los mismos de personas que prima facie puedan ocasionar disturbios.
+4. Expedir las constancias registrales de cumplimiento de sanciones, sin perjuicio de permanecer inscripto en el registro por supuestos de reincidencia y toda otra información legal.
+5. Solicitar información a organismos oficiales que cumplan tareas similares, sean provinciales o nacionales, quedando facultado por la presente a la realización de convenios.
+TITULO III
+RECURSOS FINANCIEROS

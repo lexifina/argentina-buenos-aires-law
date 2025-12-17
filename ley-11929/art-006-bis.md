@@ -1,0 +1,6 @@
+ARTICULO 6° Bis: ( Incorporado por Ley 12.529) En las conductas contravencionales sancionadas con arresto y/o prohibición de concurrencia, el Juez podrá adoptar al tomar conocimiento del hecho, las siguientes medidas cautelares:
+a) La prohibición de concurrencia del autor a todo evento deportivo de la misma disciplina en la que se cometió la contravención.-
+b) La obligación de comparecer ante la dependencia policial que designe, en días y horas señaladas para la realización de espectáculos deportivos en que se cometió la contravención.
+En el supuesto del inciso b) la autoridad policial deberá adoptar los recaudos necesarios respecto del modo de permanencia del alcanzado por la medida dentro de la dependencia, quedando prohibido su contacto o alojamiento con procesados penalmente o por contraventores que se encuentren cumpliendo condena firme.
+La medida cautelar no podrá exceder del máximo de la pena prevista para la contravención que se trate.
+En caso de incumplimiento de la medida, por el supuesto infractor, sus efectos serán los del arresto preventivo previsto en el Decreto-Ley 8031/73 (T.O. por Decreto 181/87)
