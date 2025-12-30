@@ -1,0 +1,3 @@
+ARTÍCULO 6 BIS. (Artículo incorporado por Ley 14984) Los municipios no tomarán medidas que incrementen el gasto corriente con carácter permanente durante el último semestre del año de fin de mandato del Departamento Ejecutivo, exceptuando aquel cuya causa originante exista con anterioridad al período indicado y su cumplimiento sea obligatorio.
+Durante el plazo aludido en el párrafo anterior no se podrá disponer a título gratuito u oneroso de activos fijos del municipio.
+A los fines del presente artículo deberá entenderse por incremento del gasto corriente de carácter permanente a aquel que se prolongue por más de seis (6) meses y que no se encuentre fundado en situaciones de emergencia de tipo social y/o desastres naturales.
