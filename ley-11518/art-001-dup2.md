@@ -1,0 +1,1 @@
+ARTÍCULO 1.- Obsérvase el artículo 165 del Código Fiscal -Ley 10397 y sus modificatorias- en el texto dado por el artículo 8º del proyecto de ley sancionado por la Honorable Legislatura, con fecha 24 de marzo de 1994, al que hace referencia el Visto del presente.
