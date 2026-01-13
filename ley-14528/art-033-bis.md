@@ -1,0 +1,1 @@
+ARTICULO 33 Bis: (Artículo incorporado por Ley 15.610) La implementación de la presente Ley debe tener presentes todas las Acordadas y Resoluciones que la Suprema Corte de Justicia emita y se encuentren vigentes, tales como la Resolución 2922- 2022, y/o las que en el futuro se dicten a sus efectos.
