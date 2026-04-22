@@ -1,0 +1,1 @@
+Artículo 1° ter.- Establécese dentro de los límites externos de la reserva natural que resultan del mapa mencionado en el Artículo 1 bis, una zona intangible, una zona de amortiguación y una zona experimental.

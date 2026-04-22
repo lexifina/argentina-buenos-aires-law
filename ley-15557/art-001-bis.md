@@ -1,0 +1,1 @@
+Artículo 1° bis.- Autorízase al Poder Ejecutivo, a través de la autoridad competente, a precisar la delimitación de la Reserva Natural Provincial Laguna de Rocha mediante el Mapa Oficial de la Reserva Laguna de Rocha.
