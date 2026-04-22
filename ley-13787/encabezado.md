@@ -1,0 +1,4 @@
+LEY 13787
+Texto actualizado con las modificaciones introducidas por Ley 13850 Y 15558
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
