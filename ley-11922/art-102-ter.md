@@ -1,0 +1,3 @@
+ARTÍCULO 102 TER: (Artículo INCORPORADO por Ley 13954) Cuando deba prestar declaración un adolescente de entre dieciséis (16) años a dieciocho (18) años de edad, víctima de alguno de los delitos tipificados en el Libro II Título III del Código Penal, el Fiscal, Juez o Tribunal previo a la recepción del testimonio, requerirá informe de un psicólogo o profesional especialista en maltrato y abuso sexual infantil acerca de la existencia de riesgo para la salud psico-física del joven en caso de comparecer a los estrados. En caso afirmativo, se procederá de acuerdo a lo dispuesto en el artículo 102 bis.
+Capítulo II
+Actos y Resoluciones judiciales

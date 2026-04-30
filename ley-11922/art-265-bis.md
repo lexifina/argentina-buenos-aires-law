@@ -1,0 +1,7 @@
+ARTÍCULO 265 bis – (Artículo Incorporado por Ley 14172) El Fiscal deberá requerir a organismos Públicos y/o Privados las filmaciones obtenidas mediante sistema de monitoreo, y las grabaciones de llamadas a los teléfonos del sistema de emergencias.
+La totalidad del material obtenido será entregado al Fiscal en su soporte original sin editar, o de no ser posible, en copia equivalente certificada en soporte magnético y/o digital. El Fiscal conservará el material asegurando su inalterabilidad, pondrá a disposición de las partes copia certificada, debiendo facilitar las copias que le solicitaren.
+Las reglas precedentes serán aplicables a las filmaciones obtenidas por particulares mediante sistema de monitoreo en lugares públicos o de acceso público.
+LIBRO II
+INVESTIGACION PENAL PREPARATORIA
+TÍTULO I
+DISPOSICIONES GENERALES
