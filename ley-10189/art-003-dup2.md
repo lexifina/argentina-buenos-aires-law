@@ -1,0 +1,4 @@
+ARTÍCULO 3: (Texto según Ley 13154) El Poder Ejecutivo, la Suprema Corte de Justicia y el Procurador General de la Corte, previa intervención del Ministerio de Economía, podrán crear Partidas pertenecientes a obras públicas imputables a “Erogaciones Corrientes” y “Erogaciones de Capital” que hubieren estado previstas en Presupuestos anteriores, cualquiera sea la fuente del crédito, en la medida que no se incremente el nivel de Erogaciones fijados por los correspondientes artículos de la Ley de Presupuesto, para los siguientes casos:
+a) Atender la financiación de trabajos que no hubieren finalizado en los términos previstos.
+b) Aquellos que habiendo finalizado, tengan obligaciones financieras que satisfacer.
+(Nota de redacción: Ver art. 18 de la Ley N° 15078)

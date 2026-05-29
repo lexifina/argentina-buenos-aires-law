@@ -1,0 +1,1 @@
+ARTÍCULO 4: El Poder Ejecutivo podrá modificar el Presupuesto General, incorporando las Partidas específicas necesarias o incrementando las ya previstas, cuando deba realizar erogaciones originadas por la adhesión a Leyes, Decretos y Convenios Nacionales de vigencia en el ámbito Provincial.
