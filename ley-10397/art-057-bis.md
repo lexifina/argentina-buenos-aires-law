@@ -1,0 +1,2 @@
+ARTÍCULO 57 bis. (Artículo incorporado por Ley 15226) En los casos en que la situación fiscal del contribuyente se establezca mediante procedimientos distintos a los establecidos para la determinación de oficio de las obligaciones fiscales, las diferencias de gravamen reclamadas podrán ser reconocidas por el contribuyente o responsable conforme lo establezca reglamentariamente la Autoridad de Aplicación.
+Este reconocimiento tendrá los efectos de una declaración jurada, pasible de ejecución en los términos del artículo 104 inciso c).

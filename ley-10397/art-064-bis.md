@@ -1,0 +1,1 @@
+ARTÍCULO 64 BIS. (Artículo incorporado por Ley 14983) A los efectos del cómputo del plazo de 10 días hábiles que prevé el artículo 6 de la Ley 24769 y modificatorias, se establece que el mismo comenzará a correr al día siguiente del vencimiento previsto en el artículo 64 quinto párrafo.

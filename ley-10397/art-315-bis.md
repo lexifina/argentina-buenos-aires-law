@@ -1,0 +1,1 @@
+ARTÍCULO 315 bis. (Artículo Incorporado por Ley 14333) Establecer que, a efectos de lo previsto en los incisos 13 a 16 del artículo 315 del presente Código, el valor del bien deberá ser calculado de acuerdo a las disposiciones que, según su naturaleza, se establecen en dicho artículo.

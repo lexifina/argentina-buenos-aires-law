@@ -1,0 +1,1 @@
+ARTÍCULO 35 bis. (Artículo incorporado por Ley 14653) Quienes realicen para terceros, la impresión de facturas, notas de débito y crédito o documentos equivalentes, deberán constatar previamente la condición de inscripto en el impuesto sobre los Ingresos Brutos de todo sujeto que requiera sus servicios, en las formas y condiciones que establezca la Autoridad de Aplicación.

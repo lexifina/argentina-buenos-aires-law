@@ -1,0 +1,3 @@
+ARTÍCULO 321 bis. (Artículo Incorporado por Ley 14553) (Primer párrafo modificado por Ley 14983) El impuesto deberá abonarse en hasta treinta y seis (36) cuotas mensuales, iguales y consecutivas.
+Las cuotas devengarán un interés equivalente al que perciba el Banco de la Provincia de Buenos Aires en operaciones de descuento a treinta (30) días.
+La Agencia de Recaudación de la Provincia de Buenos Aires establecerá, con carácter general, la forma y condiciones de pago para hacer efectiva la aplicación de las disposiciones del presente artículo, quedando facultada para exigir, en casos especiales, garantías suficientes en el resguardo del crédito fiscal.

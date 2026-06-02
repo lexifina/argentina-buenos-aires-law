@@ -1,0 +1,1 @@
+ARTÍCULO 89 bis. (Artículo incorporado por Ley 14333 y sustituido por Ley 14553) Cuando de acuerdo con lo establecido en el segundo párrafo del artículo 82 se hubiere impuesto sanción de multa, la misma podrá recurrirse de acuerdo con lo establecido en el artículo 115 y concordantes del presente Código.
