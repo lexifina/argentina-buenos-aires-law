@@ -1,0 +1,13 @@
+ARTÍCULO 39 BIS. (Texto según Ley 15.402) SANCIONES. Las sanciones por infracciones a esta Ley son de cumplimiento efectivo, no pueden ser aplicadas con carácter condicional ni en suspenso y consisten en:
+a. Arresto;
+b. Inhabilitación para conducir vehículos o determinada categoría de ellos. Si el/la infractor/a posee licencia habilitante se deberá retener la misma. La inhabilitación será aplicada conjuntamente con la sanción de multa y el plazo de la inhabilitación será de:
+l) Tres (3) meses para el caso de que el/la infractor/a conduzca con una alcoholemia de hasta cuatrocientos noventa y nueve (499) miligramos por litro de sangre;
+ll) Seis (6) meses para el caso de que el/la infractor/a conduzca con una alcoholemia superior a quinientos (500) miligramos por litro de sangre, hasta novecientos noventa y nueve (999) miligramos por litro de sangre;
+lll) Doce (12) meses para el caso de que el/la infractor/a conduzca con una alcoholemia superior a mil (1.000) miligramos por litro de sangre, hasta mil quinientos (1.500) miligramos por litro de sangre;
+lV) Dieciocho (18) meses para el caso de que el/la infractor/a conduzca con una alcoholemia superior a los mil quinientos (1.500) miligramos por litro de sangre;
+V) Dieciocho (18) meses para el caso de que el conductor se negare u obstaculizare la realización de las pruebas expresamente autorizadas, destinadas a determinar el estado de intoxicación alcohólica o por otras sustancias para conducir, con arreglo a lo normado en el artículo 28 ter de la presente Ley;
+c. Multa;
+d. Concurrencia a cursos especiales de educación y capacitación para el correcto uso de la vía pública conforme disponga la reglamentación. Esta sanción podrá ser aplicada como accesoria a la de multa, pero se impondrá en todos los casos que involucren conducción de vehículos en los estados de intoxicación previstas por el artículo 28 ter. Su incumplimiento triplicará el importe de la multa;
+e. Decomiso de los elementos cuya comercialización, uso o transporte en los vehículos esté expresamente prohibido.
+El decomiso podrá aplicarse conjuntamente con otras sanciones.
+La reglamentación establecerá las sanciones para cada infracción, dentro de los límites impuestos por los artículos siguientes.

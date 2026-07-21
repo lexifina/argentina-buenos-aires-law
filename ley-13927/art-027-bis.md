@@ -1,0 +1,2 @@
+ARTÍCULO 27 bis.- (Artículo incorporado por Ley 14.774) En todas las rutas de jurisdicción de la Provincia de Buenos Aires deberán funcionar, al menos, dos (2) balanzas fijas o móviles que abarquen todo su trayecto, destinadas al control obligatorio y permanente del peso de los vehículos de transporte de carga.
+Cuando la traza de la ruta sea circundante a zonas de producción minera y/o portuarias, deberán funcionar al menos, tres balanzas fijas o móviles.
