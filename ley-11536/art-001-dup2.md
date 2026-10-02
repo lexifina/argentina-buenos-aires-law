@@ -1,0 +1,1 @@
+ARTICULO 1°: Apruébase el convenio celebrado entre el Instituto Provincial de Lotería y Casinos y la Lotería Nacional Sociedad del Estado, cuyo texto como ANEXO I, forma parte integrante del presente.

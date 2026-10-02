@@ -1,0 +1,6 @@
+ARTÍCULO 6 bis (Artículo Incorporado por Ley 14880) Establécese la suma de veinte (20) pesos en concepto de arancel de ingreso y permanencia a las salas de Casinos habilitadas o a habilitarse conforme las disposiciones legales aplicables, cuya percepción, fiscalización y control será delegada por el Instituto Provincial de Lotería y Casinos, a los Municipios en cuya jurisdicción estén ubicadas las salas de Casinos a través de la suscripción de convenios donde se establecerán las condiciones operativas.
+El arancel de ingreso y permanencia así como las acciones y procedimientos que se lleven a cabo para su implementación y seguimiento, quedan exceptuados de la aplicación del artículo 6º de la presente Ley.
+A los efectos mencionados en el primer párrafo, se fija la siguiente distribución para los fondos que se recauden:
+a. Cincuenta (50) por ciento a favor del Municipio en cuya jurisdicción esté ubicada la Sala de Juego. Las Municipalidades destinarán no menos del cincuenta (50) por ciento de lo recaudado, a la implementación de programas y medidas tendientes a la prevención de la ludopatía y otras adicciones.
+b. Cincuenta (50) por ciento a favor de la Provincia de Buenos Aires, con destino a Rentas Generales.
+El monto establecido en el primer párrafo será actualizado, de corresponder, mediante la Ley Impositiva.
