@@ -1,0 +1,2 @@
+ARTÍCULO 151 bis. (Artículo incorporado por Ley 15627) Establécese que toda persona humana o jurídica, entidad pública o privada, autorizada para organizar y explotar las actividades objeto del presente título deberá abonar las remuneraciones que correspondan a sus operarios, trabajadores y trabajadoras, respetando la normativa vigente, por intermedio del Banco de la Provincia de Buenos Aires.
+TÍTULO HABILITANTE
