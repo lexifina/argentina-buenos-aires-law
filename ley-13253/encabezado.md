@@ -1,0 +1,4 @@
+LEY 13253
+Texto actualizado con las modificaciones introducidas por Ley 15634
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DEBUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
