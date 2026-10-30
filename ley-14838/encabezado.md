@@ -1,0 +1,4 @@
+LEY 14838
+Texto actualizado con las modificaciones introducidas por Ley 15391 y 15665
+EL SENADO Y LA CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY
