@@ -1,0 +1,11 @@
+# Ley 3.401: AUTORIZA A LA MUNICIPALIDAD DE MERCEDES A PERMUTAR TERRENOS CON LA SOCIEDAD RURAL E INDUSTRIAL DEL MISMO PARTIDO PARA SER DONADOS AL GOBIERNO DE LA NACION, CON DESTINO A CUARTELES. (EXONERA DEL PAGO DE IMPUESTOS FISCALES Y MUNICIPALES)
+
+Ley 3.401 · 1 versions, from 2019-09-24 (latest in force: 2019-09-24) · <https://normas.gba.gob.ar/ar-b/ley/1911/3401/13625>
+
+| Provision | File | Changes | Last changed |
+| --- | --- | ---: | --- |
+| Artículo 1 | [art-001.md](art-001.md) | 0 |  |
+| Artículo 2 | [art-002.md](art-002.md) | 0 |  |
+| Artículo 3 | [art-003.md](art-003.md) | 0 |  |
+| Artículo 4 | [art-004.md](art-004.md) | 0 |  |
+| Encabezado | [encabezado.md](encabezado.md) | 0 |  |

@@ -1,0 +1,11 @@
+# Ley 7.993: DESAFECTANDO DE SU DESTINO ORIGINARIO UNA FRACCIóN DE TIERRA FISCAL UBICADA EN LA LOC.DE ITUZAINGó, PAR­TIDO DE MORóN, PARA SU POSTERIOR DONACIóN AL OBISPADO DEL CITADO PARTIDO CON DESTINO A CAPILLA Y OBRAS ANEXAS CULTURALES.
+
+Ley 7.993 · 1 versions, from 1973-03-02 (latest in force: 1973-03-02) · <https://normas.gba.gob.ar/ar-b/ley/1973/7993/7350>
+
+| Provision | File | Changes | Last changed |
+| --- | --- | ---: | --- |
+| Artículo 1 | [art-001.md](art-001.md) | 0 |  |
+| Artículo 2 | [art-002.md](art-002.md) | 0 |  |
+| Artículo 3 | [art-003.md](art-003.md) | 0 |  |
+| Artículo 4 | [art-004.md](art-004.md) | 0 |  |
+| Encabezado | [encabezado.md](encabezado.md) | 0 |  |

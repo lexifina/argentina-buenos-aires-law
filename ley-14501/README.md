@@ -1,0 +1,9 @@
+# Ley 14.501: PRORROGA POR EL TÉRMINO DE 2 AÑOS LA VIGENCIA DE LA LEY 13776 A PARTIR DE SU VENCIMIENTO -EXPROPIACIÓN INMUEBLES UBICADOS EN LA LOCALIDAD DE VILLA GRANADEROS GENERAL SAN MARTÍN.
+
+Ley 14.501 · 1 versions, from 2022-03-28 (latest in force: 2022-03-28) · <https://normas.gba.gob.ar/ar-b/ley/2013/14501/11381>
+
+| Provision | File | Changes | Last changed |
+| --- | --- | ---: | --- |
+| Artículo 1 | [art-001.md](art-001.md) | 0 |  |
+| Artículo 2 | [art-002.md](art-002.md) | 0 |  |
+| Encabezado | [encabezado.md](encabezado.md) | 0 |  |
