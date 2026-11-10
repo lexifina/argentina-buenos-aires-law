@@ -1,4 +1,0 @@
-ARTÍCULO 27 ter.- (Artículo incorporado por Ley 14.774) La operación y mantenimiento de las balanzas previstas en el artículo anterior, estará a cargo de la autoridad que designe el Poder Ejecutivo, que, de acuerdo a las previsiones de la reglamentación, podrá prever la incorporación de practicantes rentados elegidos en el marco de convenios de cooperación celebrados con las Universidades y Escuelas Técnicas con sede en esta provincia, como así también podrá acordar la incorporación de personal de organismos provinciales y/o municipales.
-En el caso de las rutas provinciales cuyo mantenimiento se encuentra concesionado, el Poder Ejecutivo podrá celebrar acuerdos, a efectos de determinar la ubicación de las balanzas destinadas a controlar al transporte de carga; pero en todos los casos, la constatación de las infracciones y el libramiento de las actas deberán ser realizadas por funcionarios públicos.
-TÍTULO IX
-CONTROL DE INFRACCIONES

@@ -1,0 +1,1 @@
+ARTICULO 141 - El Servicio Penitenciario facilitará las instalaciones y materiales necesarios para el desarrollo de los programas que formule el organismo de educación correspondiente, según los requerimientos de cada una de las dos modalidades que integran el régimen.

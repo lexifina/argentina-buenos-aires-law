@@ -1,3 +1,0 @@
-LEY 254
-Jubilación de Juan José Cernadas.
-EL SENADO Y CÁMARA DE REPRESENTANTES, ETC.

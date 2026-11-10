@@ -1,0 +1,5 @@
+ARTÍCULO 371 BIS: (Artículo Incorporado por Ley 14543) Instrucciones para la deliberación de jurados.
+Una vez clausurado el debate, el juez invitará a los jurados a retirarse de la sala y celebrará una audiencia con los abogados de las partes a fin de que presenten sus propuestas para la elaboración de las instrucciones redactadas en un lenguaje claro y sencillo.
+En ningún caso se requerirá del jurado valoraciones sobre la subsunción de los hechos en categorías jurídicas, explicándoseles que su decisión versará exclusivamente sobre las circunstancias de hecho objeto del debate.
+Las partes plantearán en ese momento sus objeciones recíprocas. Seguidamente, decidirá en forma definitiva cuáles serán las instrucciones a impartir a los jurados.
+Las partes dejarán constancia de sus disidencias u oposiciones, exponiendo claramente sus motivos para el caso de impugnación de la sentencia. Los abogados anticiparán antes del juicio sus propuestas de instrucciones, presentándolas por escrito, entregando copia al juez y los abogados de las demás partes. Estas incidencias constarán en acta o registros taquigráficos o de audio o video, bajo pena de nulidad.

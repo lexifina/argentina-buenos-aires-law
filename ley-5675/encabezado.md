@@ -1,7 +1,0 @@
-DEROGADA POR LEY 14999
-LEY 5675
-Texto Ordenado por Decreto N° 1082/95 con las modificaciones introducidas
-por las Leyes 6212 y 11395 y por el Decreto-Ley 9467/80
-EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES,
-SANCIONAN CON FUERZA DE
-LEY

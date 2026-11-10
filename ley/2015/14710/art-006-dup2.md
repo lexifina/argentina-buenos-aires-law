@@ -1,0 +1,1 @@
+ARTÍCULO 6º.- (Texto Ley 14817) El Directorio se compondrá de un (1) Presidente designado de acuerdo al artículo 6º de la Ley de creación, un (1) Vicepresidente, un (1) Secretario y cuatro (4) Vocales. En su primera reunión, el Directorio designará de entre sus miembros un (1) Vicepresidente y un (1) Secretario.

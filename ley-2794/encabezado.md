@@ -1,3 +1,0 @@
-LEY 2794
-Presupuesto para el año 1902.
-EL SENADO Y CÁMARA DE DIPUTADOS, ETC.

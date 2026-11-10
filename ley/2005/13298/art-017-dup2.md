@@ -1,0 +1,4 @@
+ARTICULO 17.-
+Financiamiento actual del Sistema de Promoción y Protección Integral de Derechos del Niño
+La Comisión Interministerial creada por el art. 23 de la ley deberá optimizar los recursos del Estado Provincial a los fines de posibilitar el cumplimiento de la misma. En tal sentido formulará al Ministerio de Economía las sugerencias de modificaciones, reasignaciones y adecuaciones presupuestarias que pudieren corresponder en cada ejercicio.
+A los efectos de garantizar el financiamiento permanente del sistema se destinará al menos el 50% del Fondo de Fortalecimiento de Programas Sociales, que creó la ley 13.163 y dec. 609/04 para el año en curso. En cada ejercicio fiscal se determinará el monto asignado y el Ministerio de Desarrollo Humano podrá mediante convenios con los municipios transferir dichos recursos de acuerdo a un índice de distribución que elaborará teniendo en cuenta la población y necesidades de cada municipio.

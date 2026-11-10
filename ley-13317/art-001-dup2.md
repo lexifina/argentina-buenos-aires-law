@@ -1,1 +1,0 @@
-Artículo 1º: Obsérvase en el inciso j) del artículo 39 del Decreto-Ley 10.086/83 y sus modificatorias, conforme el texto propuesto por el artículo 1° del proyecto de ley sancionado por la Honorable Legislatura con fecha 17 de marzo de 2005, al que hace referencia el Visto del presente, la conjunción disyuntiva “o”.

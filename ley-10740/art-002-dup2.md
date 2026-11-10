@@ -1,1 +1,0 @@
-Artículo 2: Cuando razones de orden técnico procedimental y operativo tornen inconveniente, a juicio de cualquiera de las partes, la inmediata puesta en vigencia del convenio, éstas podrán, sin perjuicio de la suscripción del mismo, acordar una prórroga a dicho fin.

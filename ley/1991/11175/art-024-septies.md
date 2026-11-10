@@ -1,0 +1,1 @@
+ARTICULO 24° septies : (Artículo Incorporado por Ley 11737) El Poder Ejecutivo determinará las funciones específicas y la organización administrativo-funcional de cada Secretaría. Sus titulares integrarán el Gabinete Provincial con funciones similares a las enunciadas en el artículo 8° de esta Ley.

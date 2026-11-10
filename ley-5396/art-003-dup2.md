@@ -1,1 +1,0 @@
-ARTICULO 3°: Lo dispuesto en el artículo 16° de la Ley 5.396, modificado por el artículo 1° de la presente, será de aplicación automática, reemplazando las obligaciones originarias consignadas en los correspondientes títulos de propiedad, referidas a restricciones al dominio u opciones de preferencia para su adquisición.

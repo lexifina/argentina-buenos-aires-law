@@ -1,0 +1,5 @@
+LEY 6812
+Reunión hípica a beneficio del "Hospital Español" de La Plata.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES, SANCIONAN CON FUERZA DE
+LEY

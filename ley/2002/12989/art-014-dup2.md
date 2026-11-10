@@ -1,0 +1,1 @@
+Art. 14 - Cuando la Asamblea deba adoptar resoluciones que afecten los derechos de una clase de acciones, se requerirá el consentimiento o la ratificación de esta Clase, que se prestará en Asamblea Especial regida por las normas establecidas en este Estatuto para la Asamblea Ordinaria.

@@ -1,3 +1,0 @@
-ARTICULO 8.- Incorpórase como último párrafo del artículo 27 de la Ley 12.074 (texto según Ley 13.101), el siguiente:
-“Artículo 27.- ...
-La Cámara de Apelación en lo Contencioso Administrativo de Mar del Plata, comenzará a funcionar a partir de su integración. Hasta tanto ello no ocurra, los asuntos de su competencia serán atendidos por la Cámara del Fuero que determine la Suprema Corte de Justicia. Una vez puesta en funcionamiento, las causas que le correspondieren se radicarán definitivamente en la citada Cámara de Mar del Plata.”

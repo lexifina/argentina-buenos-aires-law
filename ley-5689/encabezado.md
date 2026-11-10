@@ -1,5 +1,0 @@
-LEY 5689
-Texto actualizado con las modificaciones introducidas por el Dec.-Ley 14889/56
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES,
-SANCIONAN CON FUERZA DE
-LEY

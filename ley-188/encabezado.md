@@ -1,4 +1,0 @@
-LEY 188
-Terminación de la Iglesia de San Nicolás.
-EL SENADO Y CÁMARA DE REPRESENTANTES DEL
-ESTADO DE BUENOS AIRES, ETC.

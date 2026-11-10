@@ -1,1 +1,0 @@
-Artículo 77 ter: (Artículo incorporado por Ley 15406) Será sancionado con multa, decomiso y clausura del lugar o local comercial donde se comete la infracción por un término de cinco (5) a diez (10) días, quien comercialice en forma minorista artificios pirotécnicos y/o cohetería de alto impacto sonoro y/o globos aerostáticos de pirotecnia, destinados a uso recreativo.

@@ -1,3 +1,0 @@
-LEY 1013
-Pensión a Mauricia Alvarez.
-EL SENADO Y CÁMARA DE DIPUTADOS, ETC.

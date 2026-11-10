@@ -1,4 +1,0 @@
-LEY 8100
-Declarando ciudad a la localidad de Gregorio de Laferrere.
-EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
-LEY

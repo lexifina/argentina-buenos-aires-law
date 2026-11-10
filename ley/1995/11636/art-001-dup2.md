@@ -1,0 +1,1 @@
+ARTICULO 1º: Obsérvase en el inciso a) del artículo 51 del Proyecto de Ley a que hace referencia el Visto del presente, el siguiente texto: "No se concederá por enfermedad de orden meramente psíquico, salvo cuando la misma requiriese internación y solo mientras ésta fuere necesaria".

@@ -1,5 +1,0 @@
-LEY 10254
-Texto actualizado con las modificaciones introducidas por Ley 10497.
-NOTA: Ver Leyes 10544 y 11090.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
-LEY

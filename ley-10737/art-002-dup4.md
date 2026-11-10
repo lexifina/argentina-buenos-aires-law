@@ -1,1 +1,0 @@
-Artículo 2: el Presidente del H. Senado o el funcionario en quien éste delegue, ejercerá todas las facultades que acuerdan al Poder Ejecutivo la Ley General de Obras Públicas de la Provincia, estando a su cargo la autorización y aprobación de las contrataciones de las obras que se lleven a cabo.

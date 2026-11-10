@@ -1,4 +1,0 @@
-LEY 675
-Honorarios de Peritos.
-(Véase Ley 4627)
-EL SENADO Y CÁMARA DE REPRESENTANTES, ETC.

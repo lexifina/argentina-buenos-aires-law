@@ -1,0 +1,3 @@
+LEY 275
+Presupuesto del Senado para 1860.
+EL SENADO Y CÁMARA DE REPRESENTANTES, ETC.

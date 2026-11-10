@@ -1,0 +1,1 @@
+Art. 1º - Vétase en el Art. 1º punto 2, del proyecto de Ley sancionado por la Honorable Legislatura, con fecha 29 de junio de 2000, al que hace referencia el Visto del presente, las menciones a la Circunscripción IV de las parcelas 645a, 645c y 647a del partido de Saladillo.

@@ -1,4 +1,0 @@
-LEY 3658
-Creación de un Juzgado de Paz en Lanús, Partido de Avellaneda.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY:

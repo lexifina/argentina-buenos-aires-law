@@ -1,0 +1,6 @@
+LEY 4658
+Creando la Bolsa y Mercado de Productos del Delta del Paraná
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
+CAPITULO I
+Duración y objeto

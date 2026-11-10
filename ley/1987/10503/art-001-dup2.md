@@ -1,0 +1,1 @@
+ARTICULO 1°: Téngase por ley de la Provincia de Buenos Aires N° 10.503, la norma sancionada por la Honorable Legislatura con fecha 9 de abril del año en curso, cuya copia, como anexo, forma parte del presente del presente decreto.

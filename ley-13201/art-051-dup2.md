@@ -1,1 +1,0 @@
-ARTICULO 51.- El área competente de formación y capacitación, diseñará y administrará un Legajo Académico Unico (L.A.U.). El L.A.U. centralizará la información de todos los antecedentes de formación y capacitación adquiridos por el personal policial.

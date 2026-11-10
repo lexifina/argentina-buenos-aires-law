@@ -1,4 +1,0 @@
-LEY 5477
-Donación de tierras fiscales al Club Atlético “América”, de La Plata.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY

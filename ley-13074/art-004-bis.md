@@ -1,1 +1,0 @@
-ARTÍCULO 4 bis.- (Artículo incorporado por Ley 14652 - Texto según Ley 15078) Los recursos provenientes de la tasa por expedición de informes, de conformidad a lo previsto en el artículo 4° de la presente ley, ingresarán a Rentas Generales

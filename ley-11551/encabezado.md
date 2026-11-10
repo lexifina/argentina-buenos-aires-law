@@ -1,5 +1,0 @@
-LEY 11551
-Texto actualizado con las modificaciones introducidas por Ley 11991.
-NOTA: Ver Ley 11752.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
-LEY

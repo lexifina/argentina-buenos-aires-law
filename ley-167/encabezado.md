@@ -1,4 +1,0 @@
-LEY 167
-Creación de un Juzgado Correccional en la Capital.
-EL SENADO Y CÁMARA DE REPRESENTANTES DEL
-ESTADO DE BUENOS AIRES, ETC.

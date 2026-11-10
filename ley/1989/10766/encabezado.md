@@ -1,0 +1,5 @@
+LEY 10766
+Texto Actualizado con las modificaciones introducidas por las Leyes 10783 y 15078.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES
+SANCIONAN CON FUERZA DE
+LEY

@@ -1,0 +1,1 @@
+ARTÍCULO 1°: Ratifícase, en lo que es materia de competencia del Congreso Nacional el Acuerdo Federal Minero, suscripto el 6 de mayo de 1993 entre el Poder Ejecutivo Nacional y los señores gobernadores de las provincias, y que como anexo I forma parte integrante de la presente.

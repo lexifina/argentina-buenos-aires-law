@@ -1,1 +1,0 @@
-ARTICULO 1.- Obsérvase en la parte final del artículo 3° del proyecto de ley sancionado por la Honorable Legislatura, con fecha dieciocho de julio del corriente año, al que hace referencia el Visto del presente, la expresión: ", y en un treinta y tres con ochenta y seis (33,86) por ciento para los períodos siguientes".

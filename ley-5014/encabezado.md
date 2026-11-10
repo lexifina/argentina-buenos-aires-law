@@ -1,5 +1,0 @@
-LEY 5014
-Museo de la Tradición “José Hernández”, en Billinghurst, San Martín.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
-AIRES, SANCIONAN CON FUERZA DE
-LEY:

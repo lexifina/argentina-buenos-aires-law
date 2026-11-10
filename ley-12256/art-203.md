@@ -1,1 +1,0 @@
-ARTICULO 203 - Cuando de la correspondiente evaluación del caso, se detectara la conveniencia de establecer, modificar o suspender alguna de las medidas tutelares, el Patronato de Liberados remitirá un informe fundado al juez interviniente, quien deberá expedirse y comunicar lo resuelto.

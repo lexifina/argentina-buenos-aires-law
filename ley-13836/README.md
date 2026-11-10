@@ -1,9 +1,0 @@
-# Ley 13.836: INCORPORA AL PATRIMONIO CULTURAL DE LA PROVINCIA COMO BIEN DE INTERÉS HISTÓRICO - TESTIMONIAL , A LA “EX ESCUELA DE SUBOFICIALES DE INFANTERÍA DE MARINA”, (ESIM).(PUNTA MOGOTES - MAR DEL PLATA - GENERAL PUEYRREDON - ARMADA ARGENTINA)
-
-Ley 13.836 · 1 versions, from 2008-07-27 (latest in force: 2008-07-27) · <https://normas.gba.gob.ar/ar-b/ley/2008/13836/3026>
-
-| Provision | File | Changes | Last changed |
-| --- | --- | ---: | --- |
-| Artículo 1 | [art-001.md](art-001.md) | 0 |  |
-| Artículo 2 | [art-002.md](art-002.md) | 0 |  |
-| Encabezado | [encabezado.md](encabezado.md) | 0 |  |

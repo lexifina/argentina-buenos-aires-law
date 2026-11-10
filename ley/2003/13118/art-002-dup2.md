@@ -1,0 +1,1 @@
+Art. 2º.- Obsérvase en el artículo 4 del proyecto de ley citado en el artículo anterior, modificatorio del artículo 14 de la Ley 12.074, las expresiones “Bahía Blanca”, “Mercedes”, “las ciudades de Salto y” y “respectivamente”.

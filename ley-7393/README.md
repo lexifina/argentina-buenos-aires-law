@@ -1,9 +1,0 @@
-# Ley 7.393: CONVALIDANDO CAMBIO DE DESTINO ESTABLECIDO EN LA LEY 6082, DANDO EL INMUEBLE PARA QUE FUNCIONE EL TEATRO DE LA COMEDIA.
-
-Ley 7.393 · 1 versions, from 1968-06-21 (latest in force: 1968-06-21) · <https://normas.gba.gob.ar/ar-b/ley/1968/7393/7924>
-
-| Provision | File | Changes | Last changed |
-| --- | --- | ---: | --- |
-| Artículo 1 | [art-001.md](art-001.md) | 0 |  |
-| Artículo 2 | [art-002.md](art-002.md) | 0 |  |
-| Encabezado | [encabezado.md](encabezado.md) | 0 |  |

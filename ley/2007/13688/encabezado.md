@@ -1,0 +1,12 @@
+LEY 13688
+Texto actualizado con las modificaciones introducidas por Ley 13850, 14044, 14222, 14362, 14749, 14803, 14805, 14836, 15164, 15315, 15441 y 15477
+NOTA:
+La Ley 14525 derogó la Ley 14362, modificatoria de la presente.
+Ley 15165: Crea el Programa Especial de Emergencias Educativas (PEEDD)
+Ver Ley 15558, Art 160 (Impositiva 2026)
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
+TÍTULO I
+DISPOSICIONES GENERALES
+CAPÍTULO I
+PRINCIPIOS, DERECHOS Y GARANTÍAS

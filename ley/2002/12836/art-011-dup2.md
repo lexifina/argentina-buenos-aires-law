@@ -1,0 +1,1 @@
+Art. 11. Las Provincias que no hubieran manifestado su voluntad de participar en el Programa establecido por el Decreto 1.004/01 y sus modificatorios, deberán hacerlo dentro de los treinta (30) días corridos de la firma del presente convenio.

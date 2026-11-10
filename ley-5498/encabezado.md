@@ -1,4 +1,0 @@
-LEY 5498
-Homenaje al General San Martín en el Centenario de su fallecimiento
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY

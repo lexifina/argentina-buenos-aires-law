@@ -1,3 +1,0 @@
-LEY 1062
-Jubilación de Pedro P. Galup.
-EL SENADO Y CÁMARA DE DIPUTADOS, ETC.

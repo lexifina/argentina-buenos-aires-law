@@ -1,1 +1,0 @@
-ARTÍCULO 3°. Observar en el Anexo I, primer párrafo y primer renglón la expresión “…le…”, en su inciso i), segundo párrafo, la frase “…del gravamen…” y en los incisos k) y l), in fine, la expresión “…el impuesto”.

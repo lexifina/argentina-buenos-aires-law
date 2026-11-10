@@ -1,0 +1,1 @@
+Art. 1º Téngase por ley de la Provincia el texto del proyecto sobre compatibilidades de empleos a sueldo de la Administración sancionado por la Honorable Legislatura con fecha 30 de agosto del año en curso, excepto el párrafo del artículo 9º que dice “ o en sociedades en que el Estado se parte”.

@@ -1,1 +1,0 @@
-Art. 1º) Obsérvanse, en el artículo 1º del proyecto de Ley sancionado por la Honorable Legislatura el día 6 de enero de 1998, al que hace referencia el exordio del presente, las expresiones "de hipermercados o grandes supermercados" e "y mercados de concentración frutihortícola".

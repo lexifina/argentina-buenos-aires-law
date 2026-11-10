@@ -1,1 +1,0 @@
-ARTICULO 7º: Las reuniones del Directorio se celebrarán por lo menos, una vez al mes, por citación del Presidente o extraordinariamente cuando lo disponga el Presidente o lo soliciten cinco (5) miembros del Directorio.

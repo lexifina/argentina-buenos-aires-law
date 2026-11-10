@@ -1,2 +1,0 @@
-ARTICULO 2°: Podrán acogerse al presente régimen de inversiones las personas físicas domiciliadas en la República Argentina y las personas jurídicas constituidas en ella, o que se hallen habilitadas para actuar dentro de su territorio con ajuste a sus leyes, debidamente inscriptas conforme a las mismas, que desarrollen actividades mineras en el país o se establezcan en el mismo con ese propósito.
-Los interesados en acogerse al presente régimen deberán inscribirse en el registro que habilitará a tal efecto la autoridad de aplicación.

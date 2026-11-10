@@ -1,2 +1,0 @@
-ARTICULO 18°: FIRMA DEL CONVENIO POR F.A. Y FE.ME.SA:
-F.A. y FE.ME.SA., al firmar el presente Convenio toman conocimiento y aceptan los términos del mismo y de la documentación que lo integran y se hacen responsables de las obligaciones que respectivamente para cada uno de ellos el Convenio establece.

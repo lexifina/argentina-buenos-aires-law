@@ -1,4 +1,0 @@
-LEY 3477
-Impuesto a la Producción Agropecuaria para 1913.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA
-DE BUENOS AIRES, ETC.

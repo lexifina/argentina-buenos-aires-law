@@ -1,4 +1,0 @@
-LEY 4813
-Acordando un subsidio al Hospital “Saturnino E. Unzués” de Rojas
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-L E Y

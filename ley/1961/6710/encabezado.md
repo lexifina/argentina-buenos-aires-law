@@ -1,0 +1,5 @@
+LEY 6710
+Creando el Salón Bienal de Artes Visuales de la Provincia de Buenos Aires.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES, SANCIONAN CON FUERZA DE
+LEY

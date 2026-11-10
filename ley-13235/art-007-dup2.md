@@ -1,3 +1,0 @@
-ARTICULO 7.- Autorízase a la Presidencia de la Honorable Cámara de Diputados, a disminuir el monto de la Partida Principal 1 y de la Partida Principal 5 del Ejercicio Financiero 2004, y transferir tal monto al resto de las partidas sin aumentar el monto total de erogaciones autorizadas por la presente Ley.
-Autorízase a la Presidencia de la Honorable Cámara de Diputados, a modificar el número de cargos en la Planta Temporaria para el Ejercicio Financiero 2004, con la correspondiente transferencia de partidas presupuestarias.
-La Presidencia de la Honorable Cámara de Diputados deberá efectuar las modificaciones autorizadas por Resolución que será comunicada a la Contaduría General de la Provincia.

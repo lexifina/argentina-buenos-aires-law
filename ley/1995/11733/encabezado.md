@@ -1,0 +1,4 @@
+LEY 11733
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRESSANCIONAN CON FUERZA DE
+LEY
+(*) El artículo 32 de la Ley 5109 fue modificado posteriormente por Ley 14848.

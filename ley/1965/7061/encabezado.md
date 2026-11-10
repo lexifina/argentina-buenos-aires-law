@@ -1,0 +1,4 @@
+LEY 7061
+Aprobación de convenios con la Dirección Nacional de Vialidad
+EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY

@@ -1,0 +1,1 @@
+ARTICULO 1.- Obsérvense los artículos 1º, 2º, 3º incisos i), j), k), m), n) y ñ) y 7º, incisos f), g) y h) del proyecto de Ley sancionado por la h. Legislatura con fecha 25 de agosto de 1994, al que hace referencia el visto del presente.

@@ -1,0 +1,1 @@
+ARTICULO 2: La AUTORIDAD tendrá por objeto entender, en el modo y con los alcances que se fijen en el presente Estatuto en todo lo relativo a la administración, control, uso, aprovechamiento y preservación de las cuencas de los ríos Limay, Neuquén y Negro.

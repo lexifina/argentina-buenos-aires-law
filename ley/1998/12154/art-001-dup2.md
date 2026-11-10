@@ -1,0 +1,1 @@
+Art. 1º - Obsérvanse el inciso c) del artículo 5º y el inciso h) del Art. 8º del proyecto de Ley sancionado por la Honorable Legislatura el día 15 de julio de 1998, al que hace referencia el Visto del presente.

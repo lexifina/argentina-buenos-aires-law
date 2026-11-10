@@ -1,1 +1,0 @@
-ARTICULO 35 - La organización del trabajo penitenciario en su aspecto técnico administrativo, modalidades, horarios, previsiones referidos a la higiene y seguridad industrial, accidentes e indemnizaciones se regirán por las normas legales establecidas para la materia en cuanto sean compatibles con las particularidades del sistema que esta Ley implementa.

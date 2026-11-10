@@ -1,0 +1,1 @@
+ARTICULO 11°: En los casos de remisión de actuaciones disciplinarias de un Colegio a otro, el pase respectivo se operará de Consejo a Consejo, tanto cuando el propio Consejo Directivo advierta su incompetencia, como en el caso de que la misma sea decidida por el Tribunal de Disciplina.

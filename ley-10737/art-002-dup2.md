@@ -1,1 +1,0 @@
-Artículo 2: Podrá efectuarse el pago de los haberes recibidos en el artículo anterior, a terceras personas que cobren por autorización de los agentes o funcionarios, siempre que acrediten la autorización mediante acta administrativa, poder general o especial, conforme se establece en el presente decreto.

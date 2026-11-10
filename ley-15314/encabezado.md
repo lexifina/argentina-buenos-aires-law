@@ -1,4 +1,0 @@
-LEY 15314
-Texto actualizado con las modificaciones introducidas por Ley 15332.
-EL SENADO Y LA CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
-LEY

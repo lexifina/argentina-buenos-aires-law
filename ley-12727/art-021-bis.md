@@ -1,1 +1,0 @@
-Art. 21° bis - (Incorporado por Ley 12.775) Exceptúase de lo establecido en el artículo 21° de la Ley 12.727 al personal bajo el régimen de la Ley 10.579 y sus modificatorias con veintitrés años de servicio cumplidos.

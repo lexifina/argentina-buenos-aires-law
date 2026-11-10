@@ -1,4 +1,0 @@
-LEY 12421
-Texto actualizado con las modificaciones introducidas por las Leyes 12721 y 12786
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
-LEY

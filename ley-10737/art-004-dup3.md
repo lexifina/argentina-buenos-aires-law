@@ -1,1 +1,0 @@
-Artículo 4 : En forma mensual, la Presidencia de cada Bloque Político o el funcionario que esta designe, informará a la Dirección de Personal sobre la efectiva prestación de servicios de los agentes a su cargo, ausentismo, licencias de cualquier índole e infortunios laborales.

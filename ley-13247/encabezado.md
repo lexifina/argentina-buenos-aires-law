@@ -1,4 +1,0 @@
-LEY 13247
-NOTA: Ver Ley 14002 que prorroga plazo previsto en el art.8 de la presente Ley.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY

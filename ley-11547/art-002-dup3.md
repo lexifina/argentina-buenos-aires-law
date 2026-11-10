@@ -1,2 +1,0 @@
-ARTICULO 2°: OBJETO:
-De acuerdo con lo dispuesto por el art. 1° del Decreto del Poder Ejecutivo Nacional N°770/93 la Nación concede a la Provincia el servicio público ferroviario de cargas y pasajeros del corredor Buenos Aires - Mar del Plata - Miramar en concesión integral del Sector Altamirano - Miramar y acceso a Plaza Constitución por vía de FE.ME.SA. y con la inclusión de la rehabilitación del sector Guido - Madariaga - Vivoratá por la Provincia.

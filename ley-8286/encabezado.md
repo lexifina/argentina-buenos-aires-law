@@ -1,4 +1,0 @@
-LEY 8286
-Acordando pensión graciable al señor Julio Guillermo Pérez.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY

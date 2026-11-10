@@ -1,1 +1,0 @@
-ARTICULO 215 - El Servicio Penitenciario y el Patronato de Liberados deberán contar con un Centro de Coordinación permanente, integrado por el o los funcionarios que cada una de las instituciones determine, con el fin de coordinar y programar todas las gestiones, trámites y actividades que se deban realizar en conjunto y/o inherentes a la etapa preliberatoria.

@@ -1,2 +1,0 @@
-ARTICULO 25°: El Vicepresidente 1º reemplazará al Presidente en caso de vacancia del cargo, licencia o ausencia. Vacando la vicepresidencia primera o, en caso de ausencia del titular, el Vicepresidente 2º ejercerá las funciones de Presidente.
-Producida la vacancia de la presidencia, la autoridad del Vicepresidente que lo reemplace durará hasta la realización de la próxima asamblea de renovación de autoridades, en que se incluirá la elección del presidente por un período completo.

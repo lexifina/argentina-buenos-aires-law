@@ -1,1 +1,0 @@
-ARTICULO 97 - El grupo de admisión y seguimiento realizará periódicas evaluaciones a fin de proponer a la junta de selección, la permanencia o reubicación del condenado en el régimen y/o modalidad que estime conveniente.

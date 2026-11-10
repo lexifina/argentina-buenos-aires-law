@@ -1,0 +1,1 @@
+ARTÍCULO 830°: Juicio sumario. Juicio sumarísimo. Las disposiciones de los artículos 320° y 321°, y sus correlativas sobre juicio sumario y juicio sumarísimo se aplicarán a las demandas que se promuevan con posterioridad a la fecha mencionada en el artículo 827°.

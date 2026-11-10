@@ -1,7 +1,0 @@
-LEY 2193
-Disposiciones sobre caminos, cercos y tranqueras.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE
-BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY
-TÍTULO I
-De 1os caminos

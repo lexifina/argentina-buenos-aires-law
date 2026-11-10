@@ -1,3 +1,0 @@
-ARTICULO 7°: A los sujetos que desarrollen las actividades comprendidas en el presente régimen de acuerdo a las disposiciones del capítulo III, les será aplicable el régimen tributario general con las modificaciones que se establecen en el presente capítulo.
-TITULO I
-ESTABILIDAD FISCAL

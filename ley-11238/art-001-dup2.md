@@ -1,1 +1,0 @@
-ARTICULO 1°: Decláranse aplicables en el territorio de la Provincia de Buenos Aires las disposiciones del Título II de la Ley Nacional 23.928 en cuanto se refieran a materias y situaciones jurídicas cuya regulación, en el marco del derecho público local, competa a la Provincia.

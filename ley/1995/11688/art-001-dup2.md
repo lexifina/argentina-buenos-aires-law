@@ -1,0 +1,1 @@
+ARTICULO 1: Obsérvase la expresión “... a partir de los sesenta (60) días de la publicación de la presente Ley.”, en el artículo 1° del proyecto sancionado por la Honorable Legislatura a que hace referencia el Visto del presente.

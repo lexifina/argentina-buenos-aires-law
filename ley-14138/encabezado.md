@@ -1,5 +1,0 @@
-LEY 14138
-NOTA:
-· Ley 14695 prorroga el plazo establecido en el art.7 de la presente Ley.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY

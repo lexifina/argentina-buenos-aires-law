@@ -1,1 +1,0 @@
-ARTICULO 67.- Todos los procesos de ejecución de apremios provinciales que estén en trámite hasta la puesta en marcha del Fuero Contencioso Administrativo proseguirán en los Tribunales de origen hasta su finalización.

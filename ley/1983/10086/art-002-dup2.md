@@ -1,0 +1,13 @@
+ARTICULO 2°: A partir de la vigencia de la presente ley, el haber mensual mínimo correspondiente a las diversas prestaciones que otorga la CAJA, medido en “Unidades Bioquímicas Caja”, será la siguiente:
+a) Para la jubilación Ordinaria Básica, así como para la Extraordinaria.
+I Durante los tres (3) primeros años, de trescientas treinta (330)
+II Durante el cuarto y quinto año, de trescientos cincuenta (350)
+III Desde el sexto año, trescientos setenta y cinco (375)
+b) Para la Pensión Ordinaria, durante los periodos contemplados en el inciso anterior y en relación a los montos que éste establece, regirá la misma proporción que determina el artículo 48° de Decreto Ley 10.086/83
+c) Para la Pensión Extraordinaria, durante idénticos períodos, regirá también lo dispuesto en el artículo 51° inciso "b" del Decreto Ley 10.086/83, en su nueva redacción.
+d) Para el subsidio al jubilado mayor de setenta (70) años:
+I) Durante los tres (3) primeros años, de cuarenta y tres (43).
+II) Durante el cuarto y quinto año, de cuarenta y cinco (45).
+III) Desde el sexto año, de cuarenta y ocho (48).
+e) Para el subsidio por incapacidad absoluta transitoria, regirá lo establecido en los Apartados “I” a “III” del inciso “a”) de este mismo artículo, con la salvedad de lo dispuesto en el inciso “f” siguiente.
+f) (Según Ley 11.795) Para la pensión al viudo, así como para los subsidios por incapacidad absoluta transitoria, por embarazo y por fallecimiento, el primer año será considerado como período de “carencia” del beneficio.

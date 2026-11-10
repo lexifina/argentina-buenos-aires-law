@@ -1,4 +1,0 @@
-LEY 6816
-Escalafón para el personal del Ministerio de Obras Públicas.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY

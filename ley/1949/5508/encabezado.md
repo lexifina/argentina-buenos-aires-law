@@ -1,0 +1,4 @@
+LEY 5508
+Subsidio a la Biblioteca Popular “Roque Sáenz Peña”, de Carlos Tejedor.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY

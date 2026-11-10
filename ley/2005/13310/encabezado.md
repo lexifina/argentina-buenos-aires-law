@@ -1,0 +1,4 @@
+LEY 13310
+Texto Actualizado con las modificaciones introducidas por Ley 13783.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONA CON FUERZA DE
+LEY

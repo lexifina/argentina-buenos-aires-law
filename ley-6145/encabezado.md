@@ -1,4 +1,0 @@
-LEY 6145
-Expropiación de un terreno para la Escuela 2 de Trenque Lauquen.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY

@@ -1,1 +1,0 @@
-ARTICULO 2º. Obsérvase en el inciso e) del artículo 31, de la modificación introducida al Decreto Ley N° 10.087/83 por el proyecto de ley al que se refiere el artículo anterior, la expresión “...el que deberá ser afiliado a esta Caja,...”.

@@ -1,0 +1,1 @@
+ARTICULO 13 Bis.- (Artículo incorporado por Ley 13113) A partir de 1 de julio de 2003, la determinación del impuesto correspondiente a actividades relacionadas con la salud humana que consistan en servicios de internación, diagnóstico y tratamiento, se efectuará sobre la base de los ingresos brutos percibidos en el período fiscal.

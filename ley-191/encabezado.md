@@ -1,4 +1,0 @@
-LEY 191
-Aprobación de la cuentas del Estado de 1854 y 1855.
-EL SENADO Y CÁMARA DE REPRESENTANTES DEL
-ESTADO DE BUENOS AIRES, ETC.

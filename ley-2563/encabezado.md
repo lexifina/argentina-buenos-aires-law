@@ -1,3 +1,0 @@
-LEY 2563
-Presupuesto General para 1896.
-EL SENADO Y CÁMARA DE DIPUTADOS, ETC.

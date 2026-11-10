@@ -1,3 +1,0 @@
-ARTICULO 6.-
-Las acciones u omisiones por parte del Estado, a través de sus instituciones así como por parte de la familia y de la comunidad, que interfieran, obstaculicen el disfrute o ejercicio de uno o más derechos, o el acceso a una igualdad de oportunidades para que niñas, niños y adolescentes logren su desarrollo integral y pleno, serán entendidas como amenaza a sus derechos.
-Las acciones u omisiones provenientes del Estado, a través de sus instituciones así como parte de la familia y de la comunidad que nieguen, impidan el disfrute o ejercicio de algún derecho a niñas, niños y adolescentes, pudiendo a la vez, implicar una amenaza a otros derechos, serán entendidas como violación o vulneración a sus derechos.

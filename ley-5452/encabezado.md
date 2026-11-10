@@ -1,5 +1,0 @@
-LEY 5452
-Modificación de la Ley 5101, de expropiación de tierras en Lincoln.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
-AIRES, SANCIONAN CON FUERZA DE
-LEY

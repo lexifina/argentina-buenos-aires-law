@@ -1,0 +1,1 @@
+ARTICULO 1º. Obsérvase en el artículo 1º del proyecto de Ley sancionado por la Honorable Legislatura con fecha 5 de julio del corriente año, al que hace referencia el Visto del presente, la siguiente expresión: “ ..., identificado catastralmente como: Circunscripción VI, Sección D, Manzana 319 e.”

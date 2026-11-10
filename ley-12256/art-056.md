@@ -1,2 +1,0 @@
-ARTICULO 56 – (Texto según Ley 14296) Las sanciones y los recursos que pudieran interponer contra ellas los internos, deben ser puestos en conocimiento del Juez de Ejecución o Juez competente dentro de los dos (2) días hábiles posteriores a su dictado o a su interposición.
-Recibida la notificación el Juez de Ejecución o Juez competente deberá dar inmediato conocimiento a la defensa del interno, la que dentro de los cinco (5) días de notificada, podrá recurrir la sanción o fundar el recurso que ya hubiera interpuesto su asistido.

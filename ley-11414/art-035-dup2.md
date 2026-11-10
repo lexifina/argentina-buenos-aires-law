@@ -1,1 +1,0 @@
-ARTICULO 35°: Disolución. Liquidación. La disolución del CONSORCIO deberá ser dispuesta por Ley de la Legislatura de la Provincia de Buenos Aires, debiendo preverse en la norma legal lo necesario para su liquidación y destino de sus bienes.

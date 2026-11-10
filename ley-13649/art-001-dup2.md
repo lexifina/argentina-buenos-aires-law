@@ -1,1 +1,0 @@
-ARTICULO 1°. Vetar el tercer párrafo del artículo 4º del proyecto de ley sancionado por la Honorable Legislatura con fecha 8 de marzo del año 2007, al que hace referencia el Visto del presente, que dice: “ Ambas exenciones se aplicarán sobre la actividad promocionada.”

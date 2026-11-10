@@ -1,1 +1,0 @@
-Artículo 3º - Los servicios de intereses derivados de los Convenios que se indican en el Artículo 1º, que hubieran sido abonados con anterioridad a la entrada en vigencia del presente, se imputarán hasta su concurrencia al pago de las cuotas de amortización derivadas de dichos Convenios que venzan a partir de la entrada en vigencia del presente Acuerdo.

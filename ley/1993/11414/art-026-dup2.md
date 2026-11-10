@@ -1,0 +1,9 @@
+ARTICULO 26°: Presidente. Atribuciones y deberes: Serán atribuciones y deberes del Presidente los siguientes:
+a) Ejercer la representación del CONSORCIO, firmado todos los convenios, contratos y demás instrumentos públicos o privados.
+b) Convocar y presidir las reuniones ordinarias del Directorio.
+c) Convocar a reuniones extraordinarias y presidirlas cuando lo considere necesario o lo soliciten como mínimo tres (3) Directores.
+d) Cumplir y hacer cumplir las disposiciones legales, reglamentarias y estatutarias correspondientes, como así también ejecutar las decisiones que adopte el Directorio.
+e) Otorgar licencias al personal superior y atender las disciplina del personal del CONSORCIO aplicando sanciones.
+f) Ordenar las investigaciones y procedimientos que estime convenientes.
+g) Delegar facultades de su competencia en el personal superior del CONSORCIO, con la autorización previa del Directorio excepto aquellas que expresamente le hayan sido encomendadas por el Directorio.
+h) Adoptar las medidas que siendo competencia del Directorio no admitan demora, sometiéndola a consideración del mismo en la sesión inmediata que deberá convocar.

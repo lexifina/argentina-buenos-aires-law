@@ -1,1 +1,0 @@
-ARTICULO 1.- Vétase en el artículo 11 inciso B) en el Código 551220, la expresión "hoteles alojamiento por hora" del proyecto de ley sancionado por la Honorable Legislatura, con fecha 24 de abril de 2002, al que hace referencia el Visto del presente.

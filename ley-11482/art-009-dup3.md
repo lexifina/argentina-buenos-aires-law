@@ -1,1 +1,0 @@
-ARTICULO 9°: Los organismos y empresas del Estado nacional, deberán brindar a la autoridad de aplicación la información que tuviesen para la mejor ejecución de las cartas geológicas. Las provincias serán invitadas a que adhieran a lo normado en el presente capítulo brindando la información que posean los organismos a su cargo.

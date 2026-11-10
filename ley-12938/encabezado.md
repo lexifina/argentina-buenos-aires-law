@@ -1,4 +1,0 @@
-L E Y 12938
-Texto Actualizado con las modificaciones introducidas por la Ley 13227.
-EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
-LEY

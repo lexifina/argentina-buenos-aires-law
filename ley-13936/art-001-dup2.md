@@ -1,1 +1,0 @@
-ARTÍCULO 1°. Observar en el artículo 2° del proyecto de ley sancionado por la Honorable Legislatura con fecha 3 de diciembre del año 2008, al que hace referencia el Visto del presente, la expresión "Inciso a) la designación de personal provisional y suplente se efectuará en el siguiente orden de prioridad:".

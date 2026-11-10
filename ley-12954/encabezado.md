@@ -1,4 +1,0 @@
-LEY 12954
-NOTA: Ley 13249 prorróga por el término de 2 años la vigencia de la presente Ley.
-EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
-L E Y

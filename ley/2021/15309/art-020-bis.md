@@ -1,0 +1,14 @@
+ARTÍCULO 20 BIS.- Le corresponde al Ministerio de Ambiente asistir al Gobernador en todo lo inherente a las materias de su competencia, y en particular:
+1. Entender en materia ambiental, en carácter de autoridad de aplicación de la Ley N° 11.723 y demás normativas ambientales complementarias; ejerciendo el poder de policía y fiscalizando toda acción que sea posible de dañar el ambiente, afectar la salud o la calidad de vida de la población, sin perjuicio de las competencias asignadas a otros organismos.
+2. Entender en la formulación, proyección, fiscalización y ejecución de la política ambiental con el objetivo de preservar los bienes comunes naturales, promoviendo la transición ecológica, incorporando tecnologías y energías alternativas.
+3. Intervenir en los procedimientos de prevención, determinación, evaluación y fiscalización en materia de residuos.
+4. Entender en la planificación y coordinación de políticas de educación ambiental destinada a mejorar y preservar la calidad ambiental y entender en la formación y capacitación de los integrantes del Estado provincial.
+5. Entender en la gestión, manejo y conservación de las áreas protegidas y bosques nativos.
+6. Intervenir en la planificación y conservación de la biodiversidad y en la implementación de políticas tendientes a la protección y mejoramiento del suelo.
+7. Intervenir en la instrumentación de las medidas de coordinación y articulación junto a otros organismos competentes para la gestión ambiental del agua en la Provincia.
+8. Intervenir en la planificación y el ordenamiento ambiental del territorio provincial, en el marco del Decreto-Ley Nº 8912/77, su espacio costero y marino y el Delta del Paraná bonaerense, en coordinación con otras jurisdicciones y organismos competentes en la materia.
+9. Intervenir en la gestión del fuego en el ámbito de su jurisdicción, integrando el Sistema Federal de Manejo del Fuego.
+10. Entender en los procedimientos de Evaluación de Impacto Ambiental e instrumentos complementarios, en el ámbito de su jurisdicción.
+11. Intervenir en las políticas de mitigación y adaptación del cambio climático coordinando la elaboración e implementación de planes y acciones respectivas con las demás jurisdicciones competentes.
+12. Participar en la materia de su competencia en lo relacionado a las acciones preventivas y ante las emergencias naturales y catástrofes climáticas, bajo el enfoque de reducción de riesgo de desastre y la adaptación basada en ecosistemas.
+13. Coordinar la concertación y articulación con los gobiernos municipales para la implementación de la política ambiental provincial.”

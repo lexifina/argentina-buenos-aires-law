@@ -1,4 +1,0 @@
-LEY 13422
-Texto Actualizado con las modificaciones introducidas por Ley 13769.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY

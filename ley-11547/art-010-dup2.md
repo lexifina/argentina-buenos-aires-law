@@ -1,3 +1,0 @@
-ARTICULO 10°: RESPONSABILIDADES Y GARANTIAS:
-La Provincia asume ante la Nación la total y absoluta responsabilidad de sus actos y acciones y la de sus Subcontratistas debiendo mantener indemne a la Nación por todas las consecuencias, daños y perjuicios derivados de tal responsabilidad. En tal sentido afianza sus obligaciones mediante la afectación frente a cargos no objetados por la Provincia de la cuota de coparticipación federal de impuestos que le corresponde la que también respaldará los bienes entregados.
-La Provincia quedará liberada de toda responsabilidad originada en causa anterior a la fecha de la firma del presente Convenio salvo manifestación expresa en contrario.

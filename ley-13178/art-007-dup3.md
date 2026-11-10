@@ -1,4 +1,0 @@
-Artículo 7.- Labrada la infracción a la presente Ley, y recibidas las pruebas y descargos del infractor o sin ellas, si correspondiere, cualquiera sea la autoridad que hubiere prevenido conforme lo dispuesto en el artículo anterior, se elevará dentro de las cuarenta y ocho (48) horas al señor Juez de Paz y donde no hubiere, al señor Juez Competente. Se aplicará el procedimiento establecido en el Título III – Organo de la Justicia De Faltas y de Procedimientos del Decreto-Ley 8.031/73 (T.O. por Decreto 181/87), Código de Faltas de la Provincia de Buenos Aires y sus Modificatorias.
-El Juez interviniente podrá disponer la clausura preventiva del establecimiento en casos de peligro de, pérdida, destrucción, adulteración u ocultamiento del material probatorio, peligro en la salud pública y continuidad de la conducta pasible de sanción. Asimismo ordenará el decomiso y destrucción de las bebidas alcohólicas.”
-CAPITULO III
-DISPOSICIONES COMPLEMENTARIAS

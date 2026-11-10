@@ -1,0 +1,5 @@
+LEY 11762
+Texto actualizado con las modificaciones introducidas por Ley 11923.
+Nota: Ver Ley 11192.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY

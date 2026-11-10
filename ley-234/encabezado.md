@@ -1,4 +1,0 @@
-LEY 234
-Presupuesto de la Comisión de Cuentas para 1859.
-EL SENADO Y CÁMARA DE DIPUTADOS DEL ESTADO DE
-BUENOS AIRES, ETC.

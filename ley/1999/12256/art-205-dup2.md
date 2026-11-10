@@ -1,0 +1,1 @@
+ARTICULO 205 - Cuando razones familiares, laborales y/o de salud así lo justifiquen, el Patronato podrá avalar los cambios de domicilio, transitorios o definitivos, que efectúen sus tutelados, dentro del territorio Provincial o Nacional, debiendo en todos los casos comunicarlo en forma inmediata al juez interviniente.

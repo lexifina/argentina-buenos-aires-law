@@ -1,1 +1,0 @@
-ARTICULO 12°: Documentación. Rúbrica: Los libros y demás documentación institucional, administrativa y contable del CONSORCIO deberán encontrarse rubricados por la Dirección de Personas Jurídicas de la Provincia de Buenos Aires.

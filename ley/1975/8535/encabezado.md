@@ -1,0 +1,4 @@
+LEY 8535
+Sustituyendo el inciso 1) del artículo 160 del Código Fiscal (T.O. 1975).
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY

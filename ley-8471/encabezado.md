@@ -1,4 +1,0 @@
-LEY 8471
-Declarando ciudad a la localidad de Comandante Nicanor Otamendi.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY

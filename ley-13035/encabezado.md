@@ -1,4 +1,0 @@
-L E Y 13035
-Texto Actualizado con las modificaciones introducidas por la Ley 13333.
-EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
-LEY

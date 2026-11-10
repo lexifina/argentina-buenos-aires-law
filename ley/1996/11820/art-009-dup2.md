@@ -1,0 +1,2 @@
+ARTICULO 9.- II- FUENTES ALTERNATIVAS DE AGUA POTABLE
+En el caso de que, en zonas urbanas, el Usuario quisiera mantener una fuente alternativa de agua potable deberá solicitarlo al ORBAS, quién podrá permitir, con arreglo a las normas vigentes, la utilización de esa fuente siempre que no exista riesgo para la salud pública, la protección de la fuente de agua o el servicio público que presta el Concesionario. Las autorizaciones que se confieran a este efecto, serán registradas por el ORBAS.

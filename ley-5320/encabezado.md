@@ -1,4 +1,0 @@
-LEY 5320
-Nuevo Convenio relativo a la Universidad Nacional de La Plata
-EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY

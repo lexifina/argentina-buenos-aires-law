@@ -1,1 +1,0 @@
-ARTICULO 30°: Actos administrativos: Serán exclusivamente considerados actos administrativos, aquellas decisiones del Directorio dictadas en ejercicio de las funciones de naturaleza pública que se le deleguen.

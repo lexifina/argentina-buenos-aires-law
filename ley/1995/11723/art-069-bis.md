@@ -1,0 +1,1 @@
+ARTÍCULO 69 bis.- (Artículo incorporado por Ley 13516) La Autoridad de Aplicación podrá disponer la clausura temporal total o parcial como medida preventiva cuando la situación sea de tal gravedad que así lo aconseje.

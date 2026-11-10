@@ -1,0 +1,1 @@
+ARTICULO 20°: En la primera reunión que celebre, el cuerpo elegirá de entre los consejeros titulares: Vicepresidente 1º, Vicepresidente 2º, Secretario General, Prosecretario, Tesorero y Protesorero, los cuales durarán dos (2) años en sus cargos, salvo que sea menor el mandato del designado, y se proveerán los demás cargos que se consideren necesarios.

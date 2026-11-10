@@ -1,4 +1,0 @@
-LEY 6896
-Modificación del Decreto-Ley 6769/958 (Ley Orgánica de las Municipalidades).
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENO8 AIRES, SANCIONAN CON FUERZA DE
-LEY

@@ -1,1 +1,0 @@
-ARTICULO 24° octies : (Artículo Incorporado por Ley 11737) El Poder Ejecutivo precisará el procedimiento de refrenda de los actos administrativos originados en las Secretarías que determina este capítulo.

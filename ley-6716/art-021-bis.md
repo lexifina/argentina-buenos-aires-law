@@ -1,1 +1,0 @@
-ARTICULO 21° bis: (Texto incorporado por Ley 12.259) Para el caso de una sentencia de divorcio vincular podrá inscribirse en el Registro de las Personas respecto a la parte que hubiere dado cumplimiento con lo establecido en el artículo anterior.

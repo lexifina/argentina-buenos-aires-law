@@ -1,0 +1,1 @@
+ARTICULO 1°.- La autoridad de aplicación de la ley 13.202 será el Ministerio de Seguridad de la Provincia de Buenos Aires, que ejercerá el mando orgánico de la Policía Buenos Aires 2 a través de la Subsecretaría de Seguridad.

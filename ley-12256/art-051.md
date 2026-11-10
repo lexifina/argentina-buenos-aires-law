@@ -1,1 +1,0 @@
-ARTICULO 51 - En el supuesto de primera infracción en el establecimiento, o cuando el Director lo considere conveniente, si el comportamiento anterior del interno lo justificare, en la misma resolución que impone la sanción, podrá dejar en suspenso su ejecución, fundadamente.

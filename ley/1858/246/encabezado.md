@@ -1,0 +1,4 @@
+LEY 246
+Jubilación de Juan Montero y Antonio Fernández.
+EL SENADO Y CÁMARA DE DIPUTADOS DEL ESTADO DE
+BUENOS AIRES, ETC.

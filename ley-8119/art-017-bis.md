@@ -1,1 +1,0 @@
-ARTICULO 17° bis: (Artículo incorporado por Ley 11878) Podrá convocarse a Asamblea Extraordinaria cuando circunstancias especiales de funcionamiento de la Caja así lo requieran, en la que se tratarán exclusivamente asuntos incluidos en el Orden del Día.

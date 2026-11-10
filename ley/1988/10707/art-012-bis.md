@@ -1,0 +1,1 @@
+ARTÍCULO 12 Bis: (Incorporado por Ley 12.576) En los casos que con motivo de la Constitución del Estado Parcelario de un Inmueble ubicado en planta rural o subrural se produzca una modificación en menos de la valuación de la tierra libre de mejoras, será de aplicación lo previsto en el artículo 83 de la presente Ley, su Decreto reglamentario y normas complementarias.

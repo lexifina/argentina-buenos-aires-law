@@ -1,1 +1,0 @@
-Artículo 22.- Facúltase al Poder Ejecutivo para ordenar el texto de las leyes que hayan sufrido modificaciones, efectuando las adecuaciones de numeración y correlación de articulado que fuere menester.

@@ -1,0 +1,4 @@
+LEY 8188
+Texto Actualizado con las modificaciones introducidas por Ley 8436.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+L E Y:

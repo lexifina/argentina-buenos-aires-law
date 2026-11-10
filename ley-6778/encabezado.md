@@ -1,5 +1,0 @@
-LEY 6778
-Régimen para el personal de las Escuelas de Enseñanza Técnica.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
-AIRES, SANCIONAN CON FUERZA DE
-LEY

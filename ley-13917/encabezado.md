@@ -1,5 +1,0 @@
-LEY 13917
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY
-Capítulo I.
-De la Creación, objeto y patrimonio de la Caja

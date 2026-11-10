@@ -1,1 +1,0 @@
-ARTICULO 83 - Las visitas en la modalidad atenuada serán de contacto y, dentro de las posibilidades de cada establecimiento, se las permitirá con la mayor frecuencia y duración posible, facilitándose la concurrencia individual y grupal de familiares y demás personas que se determinen.

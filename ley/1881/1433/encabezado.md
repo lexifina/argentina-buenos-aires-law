@@ -1,0 +1,4 @@
+LEY 1433
+Procedimiento en sesiones extraordinarias de la Legislatura.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY

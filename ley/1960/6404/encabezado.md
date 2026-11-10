@@ -1,0 +1,4 @@
+LEY 6404
+Declarando Año Escolar Sarmientino el período lectivo a cumplirse en 1961.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY

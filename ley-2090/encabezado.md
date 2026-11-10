@@ -1,3 +1,0 @@
-LEY 2090
-Jubilación de Félix Nechi
-EL SENADO Y CÁMARA DE DIPUTADOS, ETC.

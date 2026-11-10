@@ -1,3 +1,0 @@
-ARTICULO 3°: No podrán acogerse al presente régimen:
-a) Las personas físicas condenadas por cualquier tipo de delito doloso, incompatible con el régimen de la presente ley, y las personas jurídicas cuyos directores, administradores, síndicos, mandatarios o gestores se encuentren en las condiciones antes mencionadas.
-b) Las personas físicas y jurídicas que al tiempo de la inscripción, tuviesen deudas firmes exigibles e impagas de carácter fiscal o previsional; o cuando se encuentre firme una decisión judicial o administrativa declarando tal incumplimiento en materia aduanera, impositiva o previsional, hasta que no se dé cumplimiento a lo resuelto en ella.

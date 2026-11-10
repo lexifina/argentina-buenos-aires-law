@@ -1,1 +1,0 @@
-ARTICULO 1°: Obsérvase, en el proyecto de ley sancionado por la Honorable Legislatura el día 1° de octubre de 1.997, al que hace referencia el Visto del presente, la expresión "quedando suspendida definitivamente toda acción de desalojo y expresamente prohibido contratar y dar cumplimiento a obligaciones pendientes por convenios sobre posesión o dominio del mismo".

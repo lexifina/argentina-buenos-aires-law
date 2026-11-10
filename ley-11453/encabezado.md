@@ -1,5 +1,0 @@
-LEY 11453
-Texto actualizado con las modificaciones introducidas por la Ley 12.318.
-NOTA: Ver Ley 11532.
-EL SENADO Y LA CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
-LEY

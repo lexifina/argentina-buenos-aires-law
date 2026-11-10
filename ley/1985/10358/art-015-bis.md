@@ -1,0 +1,3 @@
+ARTÍCULO 15 bis –Sustitúyese el artículo 48º del Código de Procedimiento Penal, por el siguiente:
+”Artículo 48º - Durante el sumario, las citaciones y emplazamientos, se harán por escrito, expresando el objeto de las mismas, por medio de órdenes directas a las autoridades policiales, aún para obtener en el momento la comparecencia de los citados y sin que sean sustanciales las demás formas que quedan establecidas.
+Será falta grave para el requirente no atender a los testigos citados dentro del horario que se les haya hecho saber. Si los testigos lo pidieren, se les suministrará pasaje oficial para concurrir a la audiencia”.

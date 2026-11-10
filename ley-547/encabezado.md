@@ -1,3 +1,0 @@
-LEY 547
-Pensión a Victoriano Gámez.
-EL SENADO Y CÁMARA DE REPRESENTANTES, ETC.

@@ -1,5 +1,0 @@
-LEY 6189
-Transferencia de tierras para urbanización en Luján.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
-AIRES, SANCIONAN CON FUERZA DE
-LEY

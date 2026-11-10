@@ -1,4 +1,0 @@
-LEY 6948
-Ampliación del edificio Escuela 13 de Boulogne, partido de San Isidro.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY

@@ -1,4 +1,0 @@
-LEY 6260
-Sesquicentenario de la Revolución de Mayo. Gastos de festejos
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY

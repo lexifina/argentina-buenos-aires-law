@@ -1,4 +1,0 @@
-LEY 1379
-Eximición de multa a los deudores morosos de impuestos.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
-LEY

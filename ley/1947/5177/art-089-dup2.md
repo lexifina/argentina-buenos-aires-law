@@ -1,0 +1,1 @@
+ARTICULO 89°: La Asamblea será presidida por el Presidente del Colegio o quien legalmente lo reemplace, actuando como Vicepresidente y Secretario los del Consejo Directivo. Se podrán designar dos Prosecretarios.

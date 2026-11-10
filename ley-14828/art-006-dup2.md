@@ -1,1 +1,0 @@
-Artículo 6°. Simplificación Administrativa. Las jurisdicciones y entidades de la Administración Pública Provincial deberán contemplar líneas de acción dirigidas a la supresión, reducción y simplificación de trámites administrativos, de modo tal de garantizar un servicio ágil y próximo al ciudadano.

@@ -1,1 +1,0 @@
-ARTICULO 13°: La protección y conservación de la fauna y flora acuática en zonas de límites con otras provincias o jurisdicciones, o en Areas de interés común se implementará mediante acuerdos de cooperación.

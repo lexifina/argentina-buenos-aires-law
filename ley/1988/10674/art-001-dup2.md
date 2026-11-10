@@ -1,0 +1,1 @@
+Artículo 1°: Vétase parcialmente el artículo 3 de la ley sancionada por la Honorable Legislatura con fecha 2 de agosto de 1988, en la parte que dice: "o a los incrementos porcentuales que se fijen los señores Diputados de la Nación, en sus Dietas, rigiéndose por el módulo que en cada período mensual resultare mayor".

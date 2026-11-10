@@ -1,1 +1,0 @@
-ARTICULO 1°. Vetar en el primer párrafo del artículo 24 la expresión: “…empleo y…”, en el proyecto de ley sancionado por la Honorable Legislatura el 15 de noviembre de 2007, al que hace referencia el Visto del presente.

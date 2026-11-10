@@ -1,1 +1,0 @@
-ARTICULO 3º: La solicitud de inscripción se dejará en suspenso cuando se tratare de un fallido, hasta tanto se determine, mediante información sumaria, si de las constancias de la causa respectiva surgen evidencias de una conducta impropia, a los fines de su inscripción con prohibición de actuar como mandatario en el ejercicio profesional.

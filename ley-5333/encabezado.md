@@ -1,4 +1,0 @@
-LEY 5333
-Creación del Museo de la Reconquista, en el Partido de Las Conchas.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY:

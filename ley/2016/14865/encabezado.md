@@ -1,0 +1,4 @@
+LEY 14865
+EL SENADO Y LA CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY
+Capítulo I. Concepto, alcances y ámbito subjetivo de aplicación.

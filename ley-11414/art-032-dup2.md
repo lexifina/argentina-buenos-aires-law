@@ -1,1 +1,0 @@
-ARTICULO 32°: Arbitradores: Los Tribunales de Arbitradores estarán constituidos por abogados de la matricula, quienes resolverán conforme a derecho, y su procedimiento se regirá por lo establecido en el Título II del Libro VI del Código Procesal Civil y Comercial de la Provincia de Buenos Aires.

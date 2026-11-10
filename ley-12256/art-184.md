@@ -1,1 +1,0 @@
-ARTICULO 184 – (La modificación dispuesta por Ley 14296 fue invalidada por ACORDADA 3562/11) (Texto original) El Patronato de Liberados estará facultado a designar al organismo o institución, y/o el tipo de trabajo, y/o la carga horaria de las tareas comunitarias, cuando el juez interviniente así lo dispusiera.

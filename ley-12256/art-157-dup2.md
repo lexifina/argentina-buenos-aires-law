@@ -1,1 +1,0 @@
-ARTICULO 157 - Los aspectos educativos serán cubiertos según lo dispuesto en forma análoga por el artículo 87 de acuerdo a lo evaluado como necesario para cada caso, por los representantes de los organismos educacionales correspondientes, debiéndose cubrir los recaudos de control necesarios para los requerimientos de cada una de las modalidades del régimen.

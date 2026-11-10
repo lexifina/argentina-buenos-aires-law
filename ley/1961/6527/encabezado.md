@@ -1,0 +1,4 @@
+LEY 6527
+Declárase ciudad al actual pueblo de Almirante Brown.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY:

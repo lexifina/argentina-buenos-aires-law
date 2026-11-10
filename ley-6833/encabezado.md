@@ -1,5 +1,0 @@
-LEY 6833
-Contribución para el Congreso Panamericano de Viajantes.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
-AIRES, SANCIONAN CON FUERZA DE
-LEY

@@ -1,4 +1,0 @@
-LEY 7067
-Agrégase un párrafo como último apartado del artículo 3º de la Ley 6395.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY

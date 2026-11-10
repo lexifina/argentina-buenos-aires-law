@@ -1,1 +1,0 @@
-Art. 54 - A los fines de la presente ley se consideran organizaciones de atención a los niños y jóvenes a los organismos estatales y las organizaciones no gubernamentales que desarrollen programas o servicios de atención a los niños, niñas y jóvenes.

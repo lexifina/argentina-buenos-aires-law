@@ -1,4 +1,0 @@
-LEY 14836
-Texto actualizado con las modificaciones introducidas por Ley 14872 y 15315
-EL SENADO Y LA CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
-LEY

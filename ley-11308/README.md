@@ -1,9 +1,0 @@
-# Ley 11.308: INSTITúYASE COMO FECHA DE FUNDACIóN DE LA LOCALIDAD DE LOMA VERDE, PARTIDO DE GENERAL PAZ, EL DíA 18 DE SEPTIEMBRE DE 1911.
-
-Ley 11.308 · 1 versions, from 1992-10-16 (latest in force: 1992-10-16) · <https://normas.gba.gob.ar/ar-b/ley/1992/11308/5515>
-
-| Provision | File | Changes | Last changed |
-| --- | --- | ---: | --- |
-| Artículo 1 | [art-001.md](art-001.md) | 0 |  |
-| Artículo 2 | [art-002.md](art-002.md) | 0 |  |
-| Encabezado | [encabezado.md](encabezado.md) | 0 |  |

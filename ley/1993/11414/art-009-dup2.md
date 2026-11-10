@@ -1,0 +1,1 @@
+ARTICULO 9°: Proporcionalidad de la tasa de dragado: La tasa prevista en el inciso e) del artículo 8° del presente Estatuto guardará proporcionalidad inversa con los aportes a que se hace referencia en el artículo 5°.

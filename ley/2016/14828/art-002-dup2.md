@@ -1,0 +1,4 @@
+Artículo 2°.- Principio de economía, eficiencia y eficacia. Serán tenidos en cuenta en la evaluación de las actividades, programas, proyectos, obras, procesos y operaciones, los criterios que a continuación se detallan, que serán entendidos de la siguiente forma.
+a) Economía: la minimización del costo en la obtención de insumos, debiendo ponderar si el costo resultó ser el menor posible del mercado para un determinado volumen y calidad de adquisición.
+b) Eficiencia: el acierto en la elección de los recursos utilizados y la optimización de la relación entre los recursos y los resultados obtenidos, debiéndose ponderar si la elección y combinación de factores resultó ser la más apta para alcanzar el máximo resultado posible.
+c) Eficacia: cumplimiento de metas u objetivos, debiéndose ponderar si se obtuvieron los resultados esperados, tanto en cantidad como en calidad.

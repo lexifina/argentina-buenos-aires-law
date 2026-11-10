@@ -1,4 +1,0 @@
-LEY 3700
-Prórroga de las Sesiones Legislativas del período LXVII.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE
-BUENOS AIRES, ETC.

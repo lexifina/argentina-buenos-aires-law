@@ -1,1 +1,0 @@
-ARTICULO 122 - Los lineamientos de los programas de tratamiento correspondientes al régimen abierto estarán determinados por la evaluación particular de cada caso, abarcando desde las formas semi institucionales con alojamiento en las dependencias y salidas laborales, educacionales, asistenciales y familiares, hasta el tratamiento en la comunidad.

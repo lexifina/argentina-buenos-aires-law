@@ -1,8 +1,0 @@
-ARTICULO 1º.- Procedimiento de adhesión. Etapas.
-De acuerdo a la Ley 13.210 de las Policías Comunales de Seguridad, el procedimiento de adhesión del Municipio y la coordinación de objetivos y procedimientos con el Ministerio de Seguridad, tendrá las siguientes etapas:
-a. Firma de un convenio de adhesión del Intendente Municipal a la Ley 13.210 y a su vez de asunción de aportes, acuerdos o compromisos recíprocos con el titular del Ministerio de Seguridad por medio de Protocolos Adicionales.
-b. Dentro de los diez (10) días deberá sancionarse una ordenanza del Honorable Concejo Deliberante respectivo ratificando los términos del convenio de adhesión a la Ley de las Policías Comunales de Seguridad. Luego de promulgada, será comunicada al Ministerio de Seguridad.
-c. Dentro de los cinco (5) días de notificada la ordenanza de adhesión, el Ministerio deberá dictar una resolución que notificará a la Municipalidad. Asimismo, comunicará el nombre del titular de la Jefatura de Policía Comunal de Seguridad designado.
-d. Dentro de los dos (2) días el Intendente Municipal deberá prestar acuerdo por escrito al titular de la Jefatura de Policía Comunal de Seguridad.
-Para el caso de no hacerlo, el Ministerio propondrá una terna de candidatos de entre los cuales deberá el Intendente elegir uno para su posterior designación ministerial.
-e. En caso de estar funcionando el sistema de elección del Jefe de Policía Comunal de Seguridad por voto ciudadano, en los términos del artículo 12 de la Ley 13.210, la comunicación del Ministerio mencionada en el inciso c), dará origen al proceso eleccionario que por el presente se reglamenta.

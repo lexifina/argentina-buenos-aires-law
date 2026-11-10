@@ -1,2 +1,0 @@
-ARTICULO 72.- Cláusula Transitoria
-Las ternas elaboradas por el Consejo de la Magistratura de la Provincia de Buenos Aires para cubrir los cargos de Jueces de los Tribunales Contencioso Administrativo de Bahía Blanca y de La Plata, que por esta ley se transforman, conservan su condición vinculante a los fines de la designación de los titulares del Juzgado Contencioso Administrativo del Departamento Judicial Bahía Blanca y de uno de los Juzgados Contencioso Administrativos del Departamento Judicial de La Plata respectivamente, creados por el art. 14 de la ley 12.074

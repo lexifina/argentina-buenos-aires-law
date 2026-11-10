@@ -1,0 +1,1 @@
+Art. 1.- Obsérvase en el artículo 11 inciso, n), del proyecto de ley sancionado por la Honorable Legislatura, con fecha veintisiete de mayo del corriente año, al que hace referencia el Visto del presente. la expresión “de seguridad”.

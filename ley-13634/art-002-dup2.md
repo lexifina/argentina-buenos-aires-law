@@ -1,1 +1,0 @@
-ARTICULO 2°. Observar en el artículo 40 (último párrafo) la expresión: “Presentado el reclamo, se citará a una audiencia a todos los intervinientes y, previo a resolver el Fiscal General abrirá debate sobre el punto.”

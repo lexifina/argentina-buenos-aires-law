@@ -1,4 +1,0 @@
-DEROGADA POR LEY 3436 y 4183
-LEY 3304
-Modificaciones a la Ley Orgánica Municipal.
-EL SENADO Y CÁMARA DE DIPUTADOS, ETC.

@@ -1,4 +1,0 @@
-LEY 4645
-Modificando la Ley número 4370 (Jurado de Enjuiciamiento de Magistrados).
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY:

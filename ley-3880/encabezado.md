@@ -1,4 +1,0 @@
-LEY 3880
-Creando Archivo de los Tribunales en cada Departamento Judicial.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY:

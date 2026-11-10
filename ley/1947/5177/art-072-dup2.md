@@ -1,0 +1,1 @@
+ARTICULO 72°: Las sentencias que se dictaren deberán ajustarse a lo dispuesto en el artículo 29° de la Ley, y en todos los casos, las sanciones serán apelables ante el Consejo Superior del Colegio de Abogados de la Provincia de Buenos Aires, en la forma que establece el 2º párrafo de dicho artículo.

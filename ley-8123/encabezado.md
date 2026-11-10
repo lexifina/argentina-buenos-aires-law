@@ -1,5 +1,0 @@
-LEY 8123
-Derogando los Decretos 41 y 613 de fechas 30 de Septiembre y 21 de Octubre de 1955.
-EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA
-DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY

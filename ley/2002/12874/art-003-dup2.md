@@ -1,0 +1,12 @@
+ARTÍCULO 3º: I.- El patrimonio del Fondo estará integrado por:
+a) Los recursos del Presupuesto Provincial que específicamente se le asignen.
+b) Los recursos provenientes de los Organismos Multilaterales de crédito que le sean afectados.
+c) Los bienes del dominio privado del Estado provincial administrados por la Dirección Provincial del Catastro Territorial, dependiente del Ministerio de Economía, que no sean aptos para el cumplimiento de las funciones con fines sociales propias del Estado.
+d) El producido de sus operaciones y de la renta, frutos y venta de sus activos.
+e) Contribuciones, subsidios, legados o donaciones.
+II.- En particular, asígnanse por medio de la presente los siguientes recursos:
+a) En el año 2001, el pago que comprometiera al Gobierno Nacional por la garantía adeudada en concepto de Fondo Nacional de la Vivienda correspondiente al ejercicio fiscal 1999, con más un treinta por ciento (30%) de los recursos del fondo Nacional de la Vivienda correspondientes al ejercicio corriente.
+b) A partir del ejercicio 2002 y siguientes, el cuarenta por ciento (40 %) de los recursos provenientes del Fondo Nacional de la Vivienda con más un quince por ciento (15%) del producido por los Impuestos al Consumo de la Energía Eléctrica, Impuesto Adicional al Consumo de Energía Eléctrica e Impuesto al Consumo de Gas Natural.
+c) El Fondo tendrá un flujo anual mínimo, a partir del año 2003 inclusive, de $ 100.000.000,00 (pesos cien millones). Para el caso que los recursos previstos en este Artículo no alcancen a cubrir el ingreso mínimo comprometido se afectará en forma específica el producido de la recaudación de los impuestos al Consumo de Energía Eléctrica y del Impuesto Adicional al Consumo de Energía Eléctrica y del Impuesto al Consumo de Gas Natural.
+El Fondo deberá constituir y mantener en todo momento una reserva de liquidez que integrará su patrimonio y cuya constitución, mantenimiento y/ o costo estará a cargo de los entes contratantes, debiéndose obtener, en tal supuesto, la autorización presupuestaria correspondiente.
+La reglamentación establecerá el monto de dicha reserva, tomando en cuenta las contraprestaciones previstas en los contratos o convenios celebrados, y dispondrá cómo se afectará la misma y en que casos podrá integrarse con los recursos del Fondo. Dicha reserva no podrá ser reducida afectando los derechos adquiridos bajo los contratos o convenios celebrados.

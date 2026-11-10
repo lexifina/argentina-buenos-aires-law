@@ -1,0 +1,3 @@
+LEY 492
+Presupuesto del Banco para 1867.
+EL SENADO Y CÁMARA DE REPRESENTANTES, ETC.

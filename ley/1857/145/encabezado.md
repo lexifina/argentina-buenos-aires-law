@@ -1,0 +1,4 @@
+LEY 145
+Jurisdicción de los Jueces del Crimen de Campaña.
+EL SENADO Y CÁMARA DE REPRESENTANTES DEL
+ESTADO DE BUENOS AIRES, ETC.

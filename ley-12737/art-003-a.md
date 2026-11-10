@@ -1,1 +1,0 @@
-Art. 3° - A los fines de consolidar la transmisión del dominio a favor de los beneficiarios, facúltase al Instituto de la Vivienda y Escribanía General de Gobierno a cumplir con los recaudos necesarios.

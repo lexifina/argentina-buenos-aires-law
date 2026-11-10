@@ -1,3 +1,0 @@
-LEY 2920
-Modificación de la Ley 2896 sobre patentes para 1905.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, ETC.

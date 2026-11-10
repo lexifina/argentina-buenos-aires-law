@@ -1,3 +1,0 @@
-ARTÍCULO 53 BIS.- (Incorporado por Ley 15670) Los profesionales que habiendo aportado a la Caja dejen de hacerlo por ausentarse de la provincia de Buenos Aires o dejar el ejercicio profesional, que alcancen la edad de retiro de sesenta y cinco (65) años sin haber cumplido los años de aportes establecidos en el artículo 52 de la presente, percibirán una jubilación ordinaria parcial equivalente al porcentaje del haber máximo correspondiente a los años efectivamente aportados, solo si hubieran integrado un mínimo de diez (10) años de aportes ya sea en forma continua o alternada.
-DE LAS PRESTACIONES POR MUERTE Y SOBREVIVENCIA
-DE PERSONAS A CARGO

@@ -1,0 +1,3 @@
+ARTICULO 98 – (Texto según Ley 14296) El movimiento, distribución, cambio de régimen y modalidades de los condenados corresponderá al Servicio Penitenciario, con comunicación al Juez de Ejecución o Juez competente.
+Si, a criterio del interno o de su defensa, el paso de régimen implicare agravamiento de las condiciones de detención, el Juez competente resolverá sobre su legitimidad, en el plazo de setenta y dos (72) horas de recibida la comunicación.
+De igual forma se procederá cuando por razones de necesidad o urgencia se haya dispuesto el cambio desde el régimen abierto hacia el semi-abierto o cerrado.

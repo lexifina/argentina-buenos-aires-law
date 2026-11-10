@@ -1,2 +1,0 @@
-ARTICULO 8º.- Información del Jefe de Policía Comunal de Seguridad, del Coordinador de las Ps.Cs.S. o del Intendente Municipal al Foro Municipal.
-El Jefe de Policía Comunal de Seguridad, el Coordinador de las Policías Comunales de Seguridad correspondiente o el Intendente, podrán ser requeridos individual o conjuntamente por el Foro Municipal de Seguridad, para que informen sobre la marcha del plan de seguridad municipal o ante el acaecimiento de cualquier hecho relevante de alteración del orden público.

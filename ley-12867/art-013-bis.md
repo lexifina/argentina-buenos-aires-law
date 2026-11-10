@@ -1,1 +1,0 @@
-ARTICULO 13 Bis: (Artículo incorporado por Ley 13154) Las disposiciones de carácter común contenidas en los artículos 2º, 4º, 5º, 6º, 7º, 8º y 11º de la presente Ley mantendrán su vigencia con posterioridad a la expiración del plazo de la emergencia declarada por la Ley 12727 y sus modificatorias y complementarias.

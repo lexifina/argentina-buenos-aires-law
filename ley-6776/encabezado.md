@@ -1,4 +1,0 @@
-LEY 6776
-Lucha contra plagas animales y vegetales, ley 6264 – Reforma Agraria
-EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
-LEY

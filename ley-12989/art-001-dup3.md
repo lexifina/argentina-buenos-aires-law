@@ -1,1 +1,0 @@
-Art. 1º - Bajo la denominación "Aguas Bonaerenses S.A." se constituye esta Sociedad, conforme al régimen establecido en la Ley 19.550, Capítulo II, Sección V, Arts. 163 a 307 y el correspondiente Decreto de creación.

@@ -1,0 +1,1 @@
+ARTICULO 88°: A la hora fijada para sesionar se abrirá un registro de colegiados presentes, el que podrá ampliarse ininterrumpidamente hasta la conclusión de la Asamblea. En todos los casos, el asambleísta que deseare retirarse de la reunión deberá requerir autorización a la Presidencia.

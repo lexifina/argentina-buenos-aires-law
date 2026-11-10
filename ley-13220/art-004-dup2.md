@@ -1,2 +1,0 @@
-Artículo 4°: Autorízase al Departamento Ejecutivo a celebrar un acuerdo con cada una de las familias relevadas que deberá contemplar como mínimo: a) Tenencia precaria del sector actualmente ocupante ocupado, renunciando a favor del Municipio los derechos posesorios; b) Dicha tenencia quedará sin efecto y el beneficiario deberá desalojar de inmediato su parcela no bien el Municipio ponga a su disposición una vivienda alternativa tal como las descriptas en el
-Artículo 7° y 8° de la presente Ordenanza.

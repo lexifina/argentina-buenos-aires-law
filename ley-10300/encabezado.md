@@ -1,4 +1,0 @@
-LEY 10.300
-Texto actualizado con las modificaciones introducidas por la Ley 12.202
-EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
-L E Y

@@ -1,0 +1,1 @@
+ARTICULO 43.- La movilidad entre las diferentes carreras policiales podrán realizarse a partir del grado 4°. A esos fines, se tendrá en cuenta el desarrollo, la evaluación y la certificación de las nuevas competencias específicas adquiridas, según corresponda.

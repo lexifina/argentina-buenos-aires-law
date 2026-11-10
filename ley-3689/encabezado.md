@@ -1,4 +1,0 @@
-LEY 3689
-Creación de un Juzgado de Paz en Treinta de Agosto (Trenque Lauquen)
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY:

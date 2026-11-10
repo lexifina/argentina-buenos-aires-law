@@ -1,0 +1,2 @@
+ARTICULO 3°.- El personal de la Policía Buenos Aires 2 actuará de oficio cuando la tarea de prevención fuera ordenada por un superior jerárquico o a través del Sistema de Emergencia Policial, y a requerimiento de particulares mientras despliega su accionar preventivo.
+Cuando el requerimiento formulado por un particular no se ajustare a las funciones esenciales del personal de la Policía Buenos Aires 2, deberán arbitrarse los medios para que dicho requerimiento sea canalizado por la vía correspondiente.

@@ -1,1 +1,0 @@
-ARTICULO 33°: En los casos del artículo 5º de la Ley, la actuación profesional a que el mismo se refiere no exigirá el requisito previo del pago de la cuota anual de matriculación, ya que es uno de los supuestos previstos en el artículo 53° de la misma y constituye una norma excepcional.
