@@ -1,4 +1,0 @@
-LEY 13280
-Texto Actualizado con las modificaciones introducidas por Ley 13301.
-EL SENADO Y CÁMARA DE DIPUTADOSDE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-L E Y

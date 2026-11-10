@@ -1,0 +1,1 @@
+ARTICULO 1°: Obsérvase en el artículo 1° inciso d) del proyecto sancionado por la Honorable Legislatura, en fecha de 18 de diciembre de 1.996, al que hace referencia el visto del presente, la expresión “ inscripto su dominio en la Matrícula 220.790”.

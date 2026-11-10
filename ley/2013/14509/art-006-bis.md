@@ -1,0 +1,1 @@
+Artículo 6 bis: Para efectuar la denuncia por violencia familiar contra mujeres, no se requerirá patrocinio letrado y deberá garantizarse la gratuidad de las actuaciones judiciales y la posterior asistencia jurídica preferentemente especializada.

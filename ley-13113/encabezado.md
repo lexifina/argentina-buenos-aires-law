@@ -1,4 +1,0 @@
-LEY 13113
-Texto actualizado con las modificaciones introducidas por ley 13850.-
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY

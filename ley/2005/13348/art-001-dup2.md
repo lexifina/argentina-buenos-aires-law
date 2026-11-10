@@ -1,0 +1,1 @@
+Artículo 1°: Obsérvase en el artículo 1° del proyecto de ley sancionado por la Honorable Legislatura con fecha 4 de abril de 2005, al que hace referencia el Visto del presente, las siguientes expresiones: Texto según Ley 12.261 y “Dicha enseñanza deberá cumplirse como asignatura obligatoria y evaluativa en el último año del nivel polimodal”.

@@ -1,5 +1,0 @@
-LEY 3740
-Aumento general de sueldos y salarios pagados por el Estado.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES,
-SANCIONAN CON FUERZA DE
-LEY

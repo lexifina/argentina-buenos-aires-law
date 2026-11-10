@@ -1,7 +1,0 @@
-DEROGADA POR LEY 7482
-LEY 7201
-Reglamentando las obras públicas en general.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY
-CAPÍTULO I
-De las obras públicas en general.

@@ -1,4 +1,0 @@
-LEY 15395
-EL SENADO YCÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
-LEY
-Marco regulatorio para la Protección del Patrimonio Cultural Inmaterial

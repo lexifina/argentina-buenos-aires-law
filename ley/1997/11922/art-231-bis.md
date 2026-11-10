@@ -1,0 +1,4 @@
+ARTÍCULO 231 BIS: (Artículo Incorporado por Ley 13418) En las causas por infracción al artículo 181° del Código Penal, en cualquier estado del proceso y aún antes de la convocatoria a prestar declaración en los términos del artículo 308° de este Código, el Agente Fiscal podrá solicitar al órgano jurisdiccional interviniente que reintegre el inmueble al damnificado.
+Idéntica petición podrá ser presentada por la víctima o el particular damnificado directamente ante dicho órgano.
+La solicitud deberá ser resuelta en el menor plazo posible y se podrá disponer provisionalmente la inmediata restitución de la posesión o tenencia del inmueble, cuando el derecho invocado por el peticionante fuera verosímil. El reintegro podrá estar sujeto a que se de caución si se lo considera necesario.
+Las solicitudes y diligencias sobre restitución de inmuebles usurpados tramitarán mediante incidente por separado.

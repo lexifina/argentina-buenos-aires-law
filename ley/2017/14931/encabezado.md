@@ -1,0 +1,4 @@
+LEY 14931
+Texto actualizado con las modificaciones introducidas por Ley 15535
+EL SENADO Y LA CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY

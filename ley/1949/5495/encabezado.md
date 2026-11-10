@@ -1,0 +1,4 @@
+LEY 5495
+Monumento a don Bernardino Rivadavia en América, Rivadavia.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY:

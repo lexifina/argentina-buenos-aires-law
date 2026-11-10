@@ -1,4 +1,0 @@
-LEY 13436
-Texto Actualizado con las modificaciones introducidas por Ley 13786 y 13929.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY

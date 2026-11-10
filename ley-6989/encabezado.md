@@ -1,5 +1,0 @@
-LEY 6988
-Elevación de topes jubilatorios y pensionarios mínimos.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
-AIRES, SANCIONAN CON FUERZA DE
-LEY

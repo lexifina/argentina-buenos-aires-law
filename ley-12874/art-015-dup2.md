@@ -1,2 +1,0 @@
-ARTÍCULO 15: El Consejo de Administración instruirá al fiduciario a los fines del pago de las contraprestaciones a cargo del Fondo, de acuerdo a la modalidad y forma de pago prevista en el contrato o convenio, establecida en la Resolución del Consejo de Administración que apruebe la incorporación de la obra al régimen de esta ley.
-El Consejo de Administración podrá instruir al fiduciario a los fines del libramiento de los instrumentos de crédito que correspondan según la modalidad de cada contrato.

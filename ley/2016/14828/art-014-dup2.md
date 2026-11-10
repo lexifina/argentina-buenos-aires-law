@@ -1,0 +1,1 @@
+Artículo 14.- Atento a lo establecido en el artículo anterior, la Provincia de Buenos Aires, a través de la Autoridad de Aplicación, se reserva el derecho de adoptar todo cambio tecnológico que, sin oponerse a la Ley Nacional ni a los estándares internacionales, tienda a optimizar, adecuar y ampliar el uso de la firma digital.

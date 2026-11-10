@@ -1,6 +1,0 @@
-DEROGADA POR DECRETO-LEY 4699/57
-LEY 5286
-Texto Actualizado con las modificaciones introducidas por Ley 5363.
-Ley Orgánica de la Colonización
-EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY:

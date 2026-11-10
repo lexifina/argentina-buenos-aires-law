@@ -1,3 +1,0 @@
-LEY 1003
-Pensión a Matilde Mirazo.
-EL SENADO Y CÁMARA DE DIPUTADOS, ETC.

@@ -1,5 +1,0 @@
-LEY 10922
-Texto actualizado con las modificaciones introducidas por Ley 11905.
-NOTA: Ver Ley 11365.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY

@@ -1,0 +1,1 @@
+Art. 1º.- Obsérvase en el artículo 95, primera parte la expresión “proporcional” del proyecto de ley sancionado por la Honorable Legislatura, con fecha dieciocho de diciembre del año próximo pasado al que hace referencia el visto del presente.

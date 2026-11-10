@@ -1,4 +1,0 @@
-LEY 7074
-Declarando ciudad a la localidad de Hurlingham, Partido de Morón.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY

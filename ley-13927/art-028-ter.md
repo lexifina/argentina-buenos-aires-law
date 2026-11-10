@@ -1,8 +1,0 @@
-ARTÍCULO 28 TER.- (Articulo incorporado por Ley 15.402) PROHIBICIÓN DE CONDUCIR. Queda prohibido conducir cualquier tipo de vehículo con motor a quien registre una alcoholemia superior a 0 (cero) miligramos de alcohol por litro de sangre. Así también está prohibido conducir a quienes hubiesen consumido medicamentos, estupefacientes, psicotrópicos, estimulantes o sustancias que la Autoridad de Aplicación, con intervención del Ministerio de Salud, determine como capaces de disminuir la aptitud para conducir.
-La Autoridad de Aplicación establecerá el mínimo de error tolerable para los dispositivos medidores de concentración de las sustancias mencionadas en el párrafo precedente, debiendo utilizarse equipos o sistemas de medición cuya información no pueda ser alterada manualmente. Sus resultados deberán ser analizados considerando el factor tiempo, en el modo que establezca la reglamentación.
-Todo instrumento o sistema a utilizar para los controles contemplados en este artículo, deberá ser homologado por los organismos nacionales o provinciales con competencia en el área, conforme lo determine la reglamentación, pudiendo la Autoridad de Aplicación celebrar convenios de colaboración con organismos nacionales competentes en la materia. No podrán privatizarse ni concesionarse, las acciones vinculadas a las mediciones establecidas en este artículo, las cuales quedarán a cargo exclusivamente de las autoridades establecidas en la presente Ley.
-En cuanto no se opongan a las disposiciones del presente artículo serán aplicables las pautas generales para control de infracciones establecidas en el artículo 28.
-TÍTULO X
-BASES PARA EL PROCEDIMIENTO
-CAPÍTULO I
-JUSTICIA ADMINISTRATIVA DE INFRACCIONES DE TRANSITO PROVINCIAL

@@ -1,2 +1,0 @@
-ARTICULO 19.- Elección. Financiamiento.
-Cuando a partir de 2007, el Jefe de la Policía Comunal de Seguridad sea electo por la ciudadanía, la elección será financiada con Fondos del Ministerio de Seguridad los que serán presupuestados por el Departamento Ejecutivo Municipal con intervención del Foro Municipal de Seguridad en el marco de los compromisos mutuos asumidos, cuyas modalidades podrán ser objeto de Protocolos adicionales al Convenio de adhesión municipal a dicha ley.

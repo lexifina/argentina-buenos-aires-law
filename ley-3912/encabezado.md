@@ -1,5 +1,0 @@
-LEY 3912
-“Texto Original”
-sin las modificaciones introducidas por la Ley 3921
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
-LEY

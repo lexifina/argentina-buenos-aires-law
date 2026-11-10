@@ -1,3 +1,0 @@
-LEY 544
-Jubilación de Lorenza Alvarez.
-EL SENADO Y CÁMARA DE REPRESENTANTES, ETC.

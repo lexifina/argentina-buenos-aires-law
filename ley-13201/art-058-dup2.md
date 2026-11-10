@@ -1,1 +1,0 @@
-ARTICULO 58.- La evaluación de desempeño, además de los resultados obtenidos por el accionar del agente y su conducta, considerará los comportamientos, actitudes y cumplimientos vinculados a las competencias elementales y específicas definidas en el Capítulo III del presente Título.

@@ -1,1 +1,0 @@
-Artículo 4°: Las erogaciones contempladas en la Partida Principal 1 "Personal" del Presupuesto de Erogaciones Corrientes establecidas en la presente Ley comprenden, además, a noventa y dos (92) Diputados y cuatro (4) Funcionarios de Ley.

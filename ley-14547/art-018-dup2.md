@@ -1,1 +1,0 @@
-ARTÍCULO 18: (Artículo Incorporado por Ley 15143) Supervisión y control. La Autoridad de Aplicación, a través de las áreas técnicas correspondientes, ejerce la supervisión y controla el procedimiento, con el objeto de impedir que durante el mismo se descarten desechos que retornen a la vía pública o sean agentes potenciales de contaminación del medioambiente.

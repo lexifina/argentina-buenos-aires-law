@@ -1,0 +1,4 @@
+DEROGADA POR LEY 1849
+LEY 1840
+Donación de una quinta en La Plata, a Domingo Faustino Sarmiento.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, ETC.

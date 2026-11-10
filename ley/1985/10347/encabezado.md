@@ -1,0 +1,4 @@
+LEY 10347
+Texto Actualizado con las modificaciones introducidas por Ley 10578.
+EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS SANCIONAN CON FUERZA DE
+LEY

@@ -1,3 +1,0 @@
-ARTICULO 68°: Para la recepción de la prueba, ya sea en forma total o parcial, el Tribunal podrá delegar la función en uno de sus miembros, que será asistido por el Actuario que designará el mismo Tribunal.
-Las decisiones que adopte el miembro delegado en ejercicio de su función serán apelables ante el Tribunal pleno en el acto de la audiencia.
-Cuando se deban tramitar pruebas fuera de la ciudad asiento del Tribunal, el miembro encargado del trámite y secretario podrá constituirse donde se requiera su intervención o de lo contrario encomendar la diligencia al Tribunal de Disciplina del Departamento al que pertenezca la localidad donde deba cumplirse la diligencia.

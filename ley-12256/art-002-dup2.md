@@ -1,1 +1,0 @@
-ARTICULO 2.- A fin de asegurar el principio de igualdad de trato, la única Ley aplicable en el territorio bonaerense será la presente, cualquiera sea la autoridad judicial, provincial, nacional o extranjera, a cuyo cargo ellos se encuentren.

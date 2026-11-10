@@ -1,0 +1,1 @@
+ARTÍCULO 4°. Determinar para las Subsecretarías creadas en el artículo 1° los siguientes cargos: un (1) Subsecretario de Gestión Educativa y un (1) Subsecretario de Recursos Humanos y Relaciones Laborales.

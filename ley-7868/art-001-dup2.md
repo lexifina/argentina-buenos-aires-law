@@ -1,1 +1,0 @@
-ARTÍCULO 1.- Conforme al contrato de préstamo 302/SF-AR suscripto entre la Nación y el Banco Interamericano de Desarrollo, todas las construcciones, refecciones, instalaciones, trabajos y obras en general que se hallan comprendidas en el Plan Nacional de Agua Potable Rural, se ejecutarán de acuerdo al siguiente procedimiento.

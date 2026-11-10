@@ -1,4 +1,0 @@
-LEY 5715
-Erección de un monumento al General San Martín, en Chacabuco.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY:

@@ -1,0 +1,4 @@
+LEY 3478
+Impuestos al Comercio e Industria para 1913.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA
+DE BUENOS AIRES, ETC.

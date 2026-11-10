@@ -1,0 +1,4 @@
+LEY 5859
+Fijando la suma de $ 15.000, la retribución mensual del Fiscal de Estado.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY

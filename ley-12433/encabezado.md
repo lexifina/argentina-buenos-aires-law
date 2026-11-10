@@ -1,4 +1,0 @@
-LEY 12.433
-DEROGADA POR LEY 12.573
-El Senado y Cámara de Diputados de la Provincia de Buenos Aires sancionan con fuerza de
-LEY

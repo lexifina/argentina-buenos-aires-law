@@ -1,0 +1,4 @@
+LEY 4579
+Creando una oficina de Registro Civil en Dudignac (Nueve de Julio).
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY:

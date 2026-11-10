@@ -1,0 +1,1 @@
+ARTICULO 116°: Sin perjuicio de la facultad conferida a la Asamblea, conforme al artículo 129° de la presente reglamentación, por Secretaría se certificará sobre las cualidades de los candidatos, de acuerdo con los artículos 36°, 41° y 45° de la Ley, y 5º de la Ley 6716 – T.O. por Decreto N° 4771/95 -.

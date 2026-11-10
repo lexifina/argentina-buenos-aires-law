@@ -1,1 +1,0 @@
-ARTÍCULO 184 quater. (Artículo incorporado por Ley 15079) (Texto según Ley 15558) A los fines de la identificación de los prestadores de los servicios referidos en el artículo 184 bis, la Agencia de Recaudación podrá establecer regímenes de información o celebrar convenios de intercambio de información con organismos públicos nacionales o provinciales.

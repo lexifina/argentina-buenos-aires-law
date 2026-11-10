@@ -1,0 +1,3 @@
+ARTICULO 20°: DIFERENDOS:
+Sin perjuicio de la competencia originaria de la Corte Suprema de Justicia de la Nación para entender en los litigios entre las partes, éstas podrán de común acuerdo someter el diferendo a un Tribunal Arbitral, en la forma y condiciones que en cada caso se convenga.
+En todos los casos, con carácter previo, se requerirá la intervención del organismo creado por Decreto 2.339/92, quien se expedirá en las materias de su competencia específica.

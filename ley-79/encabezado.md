@@ -1,4 +1,0 @@
-LEY 79
-Contribución directa para 1856
-Buenos Aires, octubre 27 de 1855.
-EL SENADO Y CÁMARA DE REPRESENTANTES DEL ESTADO DE BUENOS AIRES, ETC.

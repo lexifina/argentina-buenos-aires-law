@@ -1,4 +1,0 @@
-ARTÍCULO 7°. Registrar esta resolución, que será desglosada para su archivo en la Dirección de Coordinación Administrativa, que en su reemplazo agregará copia autenticada de la misma, comunicar a la Honorable Legislatura , al Consejo General de Cultura y Educación, a las Subsecretarías de Educación y Administrativa, a la Auditoría General, a la Dirección Provincial de Recursos Humanos, a la Dirección General de Administración, a la Dirección de Tecnología de la Información y a la Dirección Centro de Documentación e Información Educativa de este Organismo, al Ministerio de Economía y a la Subsecretaría de Modernización del Estado dependiente de la Secretaría General de la Gobernación. Publicar, dar al Boletín Oficial y al SINBA. Cumplido, archivar.
-Silvina Gvirtz
-Directora General
-de Cultura y Educación

@@ -1,5 +1,0 @@
-LEY 3780
-Exención de impuestos a la Sociedad de Socorros Mutuos de San Isidro.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES,
-SANCIONAN CON FUERZA DE
-LEY

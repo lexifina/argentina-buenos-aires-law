@@ -1,1 +1,0 @@
-Art. 3º - A los efectos de perfeccionar el endeudamiento previsto en la presente, el Poder Ejecutivo, con previa intervención del Ministerio de Economía, determinará los mecanismos que juzgue más apropiados a los efectos de minimizar el costo del financiamiento y preservar el crédito provincial.

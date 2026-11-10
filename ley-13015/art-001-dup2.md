@@ -1,1 +1,0 @@
-ARTICULO 1.- Obsérvase en el artículo 1 del proyecto de ley sancionado por la Honorable Legislatura, con fecha 19 de diciembre del año 2002, al que hace referencia el Visto del presente, la expresión :"ubicado en la calle 14 entre 66 y 67 de la ciudad de La Plata, designado catastralmente como Circunscripción II, Sección M, Manzana 943, Parcela I".

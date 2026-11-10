@@ -1,1 +1,0 @@
-Artículo 1º.- Obsérvase en el artículo 10, segundo párrafo del proyecto de ley sancionado por la Honorable Legislatura, con fecha veintisiete de mayo del corriente año, al que hace referencia el Visto del presente, la expresión “en actividad”.

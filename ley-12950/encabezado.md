@@ -1,4 +1,0 @@
-LEY 12950
-Texto Actualizado con las modificaciones introducidas por Ley 15243
-EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
-LEY

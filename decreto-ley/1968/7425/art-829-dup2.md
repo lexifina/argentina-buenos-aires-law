@@ -1,0 +1,1 @@
+ARTÍCULO 829°: Prueba. Las normas del artículo 365° sobre plazo de ofrecimiento de prueba y la del artículo 428° sobre número de testigos, sólo regirán en aquellos juicios en los que, al 1° de febrero de 1.969, no hubiere comenzado su curso el período de prueba, siendo aplicables las normas hasta entonces vigentes.

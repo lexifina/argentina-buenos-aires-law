@@ -1,1 +1,0 @@
-ARTÍCULO 7º - A partir de la vigencia de la presente Ley quedarán sin efecto las disposiciones judiciales destinadas a modificar la situación dominial de las instalaciones y maquinarias identificadas en el artículo 1º.

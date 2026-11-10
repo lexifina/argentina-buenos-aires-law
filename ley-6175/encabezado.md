@@ -1,4 +1,0 @@
-LEY 6175
-Expropiación de terrenos para el cementerio de Merlo
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY

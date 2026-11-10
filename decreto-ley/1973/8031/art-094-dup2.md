@@ -1,0 +1,3 @@
+ARTÍCULO 94 quáter: (Incorporado por Ley 13634) Será sancionado con multa equivalente al valor de uno (1) a diez (10) haberes mensuales del Agente de Seguridad (Agrupamiento Comando) de la Policía de la Provincia de Buenos Aires, y hasta treinta (30) días de arresto, el que revelare la identidad de los niños sujetos a actuaciones administrativas o judiciales, cualquiera sea su carácter y con motivo de dichas actuaciones, en informaciones periodísticas y de toda índole. Se consideran como informaciones referidas a la identidad: el nombre, apodo, filiación, parentesco, residencia y cualquier otra forma que permita su individualización.
+Capítulo IX
+De las Expresiones Utilizadas en este Título

@@ -1,6 +1,0 @@
-DEROGADA POR LEY 9047
-LEY 8551
-Donando a la Municipalidad de Capitán Sarmiento fracción de tierra fiscal.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
-AIRES, SANCIONAN CON FUERZA DE
-LEY

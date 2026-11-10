@@ -1,4 +1,0 @@
-LEY 3805
-Subsidio a los familiares del ex Senador Carlos E. Muntaabski
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY

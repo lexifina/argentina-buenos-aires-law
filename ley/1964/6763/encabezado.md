@@ -1,0 +1,5 @@
+LEY 6763
+Actualización de multas de la Policía Sanitaria Vegetal.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES, SANCIONAN CON FUERZA DE
+LEY

@@ -1,4 +1,0 @@
-LEY 5322
-Creación del Conservatorio Provincial de Música y Arte Escénico.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY

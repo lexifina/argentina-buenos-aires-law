@@ -1,4 +1,0 @@
-LEY 7198
-Texto actualizado con las modificaciones introducidas por ley 7298.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONA CON FUERZA DE
-LEY

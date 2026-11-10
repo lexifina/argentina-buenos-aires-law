@@ -1,4 +1,0 @@
-LEY 13404
-Texto Actualizado con las modificaciones introducidas por Ley 13.450, 15.037 y 15.310.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY

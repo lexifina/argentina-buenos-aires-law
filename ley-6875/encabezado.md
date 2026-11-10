@@ -1,4 +1,0 @@
-LEY 6875
-Contribución a la Comisión Oficial de Homenaje a don Enrique Udaondo.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY

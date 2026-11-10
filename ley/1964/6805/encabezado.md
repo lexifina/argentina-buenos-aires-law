@@ -1,0 +1,6 @@
+DEROGADA POR LEY 8837
+LEY 6805
+Canon para extracción de arena, cascajo, canto rodado y pedregullo.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES, SANCIONAN CON FUERZA DE
+LEY

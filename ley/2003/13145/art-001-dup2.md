@@ -1,0 +1,1 @@
+Artículo 1°: Serán objeto de decomiso los bienes cuyo traslado o transporte, dentro del territorio provincial, se realice sin la documentación respaldatoria que exige la Dirección Provincial de Rentas.

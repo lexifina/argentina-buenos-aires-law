@@ -1,1 +1,0 @@
-ARTÍCULO 6° bis: (Artículo INCORPORADO por Ley 14008) Aún cuando no se configure la situación prevista en el artículo 1°, podrá la Suprema Corte de Justicia asignar a los integrantes de este Cuerpo funciones para cubrir ausencias generadas por licencias otorgadas por un plazo menor al establecido en el citado artículo, o para cumplir otra función de naturaleza jurisdiccional

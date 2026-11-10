@@ -1,0 +1,2 @@
+ARTICULO 15 - Los jóvenes adultos (de 18 a 21 años), serán alojados en establecimientos o secciones especiales con el objeto de facilitar el desarrollo de aquellos programas asistenciales y/o de tratamiento que, implementados para pequeños grupos, contemplen con especial énfasis los aspectos formativo educativos de los mismos, teniendo en cuenta la especificidad de los requerimientos propios de la edad.
+MUJERES EMBARAZADAS

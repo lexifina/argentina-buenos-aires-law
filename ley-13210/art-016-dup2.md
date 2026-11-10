@@ -1,2 +1,0 @@
-ARTICULO 16.- Cantidad de personal. Limitación.
-La Unidad de Coordinación de las Policías Comunales de Seguridad establecida por el artículo 8 de la Ley 13.210 contará con la cantidad de personal que se estime necesario, teniendo en cuenta la extensión del territorio, el número de Policías Comunales y la dotación de Personal de las mismas, pero en ningún caso podrá estar compuesta por más de cinco (5) integrantes.

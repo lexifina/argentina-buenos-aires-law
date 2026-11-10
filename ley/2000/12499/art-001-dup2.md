@@ -1,0 +1,1 @@
+Art. 1º: Obsérvase, en el artículo 1º -modificatorio del artículo 19 de la Ley 10.547- del proyecto de ley sancionado por la Honorable Legislatura con fecha 24 de agosto del año 2000, al que hace referencia el Visto del presente las expresiones: "...a la Subsecretaría de Industria, Comercio y Minería... " y " ... que la misma requiera... ".

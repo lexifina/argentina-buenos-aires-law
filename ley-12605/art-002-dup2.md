@@ -1,1 +1,0 @@
-Art. 2º - Obsérvanse en el artículo 16 del proyecto de ley al que hace referencia el artículo precedente los términos: “... créase en el ámbito de ...”, “... una Comisión de seguimiento de aplicación de la ley, la cual ...”.

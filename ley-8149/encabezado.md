@@ -1,4 +1,0 @@
-LEY 8149
-Facultando al Poder Ejecutivo a incrementar el Cálculo de Recursos.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
-LEY

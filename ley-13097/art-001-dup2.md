@@ -1,1 +1,0 @@
-ARTICULO 1°: Obsérvase en el artículo 1° la expresión "… como asimismo las maquinarías e instalaciones que se encuentren dentro del inmueble identificado precedentemente" y en el artículo 2° la expresión "… maquinarías e instalaciones…" del proyecto de Ley sancionado por la Honorable Legislatura con fecha 20 de agosto de 2003, al que hace referencia el Visto del presente.

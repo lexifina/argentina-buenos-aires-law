@@ -1,0 +1,4 @@
+LEY 6.230
+Modificación de la Ley 6.068, de creación del Partido de Escobar.
+EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONA CON FUERZA DE
+LEY

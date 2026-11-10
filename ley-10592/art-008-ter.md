@@ -1,1 +1,0 @@
-ARTÍCULO 8° ter.- (Artículo incorporado por Ley 13508) Los responsables de los organismos enumerados en el artículo 8°, en donde se verifique el incumplimiento de alguna de las obligaciones establecidas en los artículos precedentes, incurrirán en falta grave de acuerdo a lo establecido en la Ley 10.430.

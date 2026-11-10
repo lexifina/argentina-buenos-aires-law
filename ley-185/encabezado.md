@@ -1,4 +1,0 @@
-LEY 185
-Organización de la Municipalidad de San Nicolás.
-EL SENADO Y CÁMARA DE REPRESENTANTES DEL
-ESTADO DE BUENOS AIRES, ETC.

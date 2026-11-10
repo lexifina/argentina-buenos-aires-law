@@ -1,1 +1,0 @@
-Artículo 40 Ter.- Toda solicitud de custodia deberá presentarse ante la Jefatura del Servicio de Custodia de Objetivos Fijos, Personas y Traslado de Detenidos y deberá resolverse de acuerdo al procedimiento interno que determine la reglamentación.

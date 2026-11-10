@@ -1,3 +1,0 @@
-LEY 386
-Pensión a Ramón Muñoz.
-EL SENADO Y CÁMARA DE REPRESENTANTES, ETC.

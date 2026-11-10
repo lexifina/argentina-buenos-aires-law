@@ -1,0 +1,1 @@
+ARTICULO 7.- (Texto según Ley 13254) La asistencia de los procesados, la asistencia y/o tratamiento de los procesados que adhieran al “Programa de Trabajo y Educación” y la asistencia y/o tratamiento de los condenados se brindará en las áreas: Convivencia, Educación, Trabajo, Tiempo Libre y Asistencia Psicosocial.

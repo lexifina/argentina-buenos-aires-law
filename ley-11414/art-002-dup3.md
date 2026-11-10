@@ -1,3 +1,0 @@
-ARTICULO 2°: Ambito de actuación del consorcio: El ámbito de actuación del ente a los efectos del cumplimiento de su objeto y funciones comprende: a) la zona portuaria de Quequén que la Nación transfiera en dominio a la Provincia de Buenos Aires en cumplimiento del artículo 12° de la Ley 24.093 –que tendrá la condición de bien del dominio público provincial, según lo establecido en el inciso 2) del artículo 2.340 del Código Civil- y los ámbitos acuáticos lindantes, en los términos del artículo 2° de la Ley 24.093; y b) el canal principal de acceso al puerto.
-CAPITULO II
-CAPACIDAD. REGIMEN LEGAL. DOMICILIO

@@ -1,0 +1,1 @@
+ARTICULO 1°. Vetar el apartado i) del inciso 4° del artículo 291 del Código Fiscal Ley Nº 10.397, (T.O Resolución del Ministerio de Economía N° 120/04 y modificatorias) en el proyecto de ley sancionado por la Honorable Legislatura el 27 de septiembre de 2007, al que hace referencia el Visto del presente.

@@ -1,0 +1,2 @@
+Artículo 227 bis. Establécese un Régimen Simplificado del Impuesto sobre los Ingresos Brutos aplicable, exclusivamente, a los pequeños contribuyentes locales de la Provincia de Buenos Aires. Este régimen sustituye la obligación de abonar el tributo mediante anticipos, conforme lo previsto en el artículo 209 y concordantes del presente Código.
+Quedan excluidos del presente régimen, los contribuyentes alcanzados por el Convenio Multilateral.

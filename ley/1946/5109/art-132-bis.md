@@ -1,0 +1,1 @@
+ARTÍCULO 132 bis.- (Artículo incorporado por Ley 14.086) Serán penados con multa que se fijará entre diez (10) y sesenta (60) haberes mensuales mínimos de la Administración Pública Provincial los apoderados que falsifiquen o adulteren la documentación tendiente a acreditar las adhesiones requeridas para la oficialización de las listas de candidatos en las elecciones primarias.

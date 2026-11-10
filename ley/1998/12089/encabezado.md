@@ -1,0 +1,4 @@
+LEY 12089
+Nota: Ver al pie de la presente el Decreto Reglamentario nº 739/05.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY

@@ -1,1 +1,0 @@
-ARTICULO 128 - Dentro del régimen abierto los programas de las áreas educacional, capacitación laboral, salud y asistencial, se implementarán mediante la utilización prevalente de los recursos que a tal efecto brinde la comunidad, facilitando el Servicio Penitenciario los medios en aquéllos en que fuere necesario.

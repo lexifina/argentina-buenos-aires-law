@@ -1,1 +1,0 @@
-ARTICULO 3º: Los recursos que demanden la ejecución del Programa, serán provistos por la Unidad Ejecutora del Fondo de Financiamiento de Programas Sociales en el Conurbano Bonaerense para aquellos créditos que se efectivicen en los Partidos comprendidos en el artículo 6 de la Ley 11.247 y por el Instituto de la Vivienda en los restantes partidos de la Provincia.

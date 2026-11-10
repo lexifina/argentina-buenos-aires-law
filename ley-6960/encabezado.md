@@ -1,5 +1,0 @@
-LEY 6960
-Creación del Museo Florentino Ameghino en la ciudad de Luján.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
-AIRES, SANCIONAN CON FUERZA DE
-LEY

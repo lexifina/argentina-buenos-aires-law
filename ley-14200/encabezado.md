@@ -1,4 +1,0 @@
-LEY 14200
-Texto actualizado con las modificaciones introducidas por Ley 14333, 14553 y 14880.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY

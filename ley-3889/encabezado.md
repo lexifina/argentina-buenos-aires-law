@@ -1,4 +1,0 @@
-LEY 3889
-Ampliación de la partida para revalúo inmobiliario.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY

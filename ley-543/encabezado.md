@@ -1,3 +1,0 @@
-LEY 543
-Jubilación de Macedonio Díaz.
-EL SENADO Y CÁMARA DE REPRESENTANTES, ETC.

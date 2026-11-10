@@ -1,4 +1,0 @@
-LEY 12996
-Texto Actualizado con las modificaciones introducidas por la Ley 13039 y 13257.
-EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
-LEY

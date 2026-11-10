@@ -1,1 +1,0 @@
-ARTÍCULO 6º ter: Las unidades y centros de tratamiento y disposición final de residuos patogénicos que se inscriban en el registro respectivo, conforme con las pautas que establezca la reglamentación de la presente, abonarán por única vez una tasa fija en concepto de inscripción cuyo valor será fijado por la Ley Impositiva.

@@ -1,4 +1,0 @@
-LEY 13426
-Texto Actualizado con las modificaciones introducidas por Ley 13771.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY

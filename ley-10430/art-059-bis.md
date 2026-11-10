@@ -1,1 +1,0 @@
-ARTÍCULO 59 bis. (Artículo incorporado por Ley 14720) El personal femenino gozará de licencia de un día al año con goce íntegro de haberes, a efectos de facilitar su concurrencia a realizarse el examen de Papanicolau y/o radiografía o ecografía mamaria, hecho que deberán acreditar mediante la presentación de certificado médico.

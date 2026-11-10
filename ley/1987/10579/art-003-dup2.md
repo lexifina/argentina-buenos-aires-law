@@ -1,0 +1,1 @@
+ARTICULO 3°: El personal docente contrae las obligaciones y adquiere los derechos establecidos en el presente estatuto, desde el momento en que se hace cargo de la función para la que es designado en carácter de titular, titular interino, provisional o suplente, con las limitaciones que en cada caso se determinen.

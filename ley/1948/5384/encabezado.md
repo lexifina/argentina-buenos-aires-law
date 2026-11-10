@@ -1,0 +1,4 @@
+LEY 5384
+Modificación de la Ley 5263, de Creación de Estaciones Zootécnicas.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY

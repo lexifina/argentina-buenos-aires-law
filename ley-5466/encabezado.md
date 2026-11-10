@@ -1,4 +1,0 @@
-LEY 5466
-Construcción y habilitación de un Hospital de Niños, en Bahía Blanca.
-EL SENADO Y LA CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY

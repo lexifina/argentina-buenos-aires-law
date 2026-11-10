@@ -1,3 +1,0 @@
-LEY 361
-Pensión a Cecilia B. de Alfaro.
-EL SENADO Y CÁMARA DE REPRESENTANTES, ETC.

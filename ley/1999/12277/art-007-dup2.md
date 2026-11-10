@@ -1,0 +1,1 @@
+ARTICULO 7.- Autorízase al Poder Ejecutivo a ordenar el texto de la Ley 5.177, eliminando del mismo los artículos derogados, incorporando las modificaciones previstas en la presente ley y toda otra anterior vigente y, en consecuencia, proceder a su renumeración.

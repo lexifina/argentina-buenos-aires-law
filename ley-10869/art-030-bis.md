@@ -1,3 +1,0 @@
-ARTÍCULO 30 bis: (Artículo Incorporado por Ley 13963) Si el H. Tribunal de Cuentas no dictara sentencia dentro del plazo fijado en los artículos 18 ter y 24 de la Ley 10876, será de aplicación lo previsto en el artículo 30, cuarto párrafo, de la presente Ley.
-El Tribunal podrá hacer comparecer a los funcionarios de los organismos controlados para que suministren los informes y explicaciones que le fueren requeridas con motivo del estudio de las cuentas.
-Si los organismos controlados no cumplieran con los plazos establecidos, el Tribunal dictará sentencia en base a los antecedentes obtenidos, sin perjuicio de las medidas establecidas en el artículo 16 de la presente Ley.

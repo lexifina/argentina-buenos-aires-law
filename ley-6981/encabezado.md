@@ -1,5 +1,0 @@
-LEY 6981
-Sala de Primeros Auxilios en el Barrio "Pueblo Nuevo", Bragado.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
-AIRES, SANCIONAN CON FUERZA DE
-LEY

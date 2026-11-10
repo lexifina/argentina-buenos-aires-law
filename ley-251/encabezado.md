@@ -1,4 +1,0 @@
-LEY 251
-Pensión a Dolores Rute de Tarragona.
-EL SENADO Y CÁMARA DE DIPUTADOS DEL ESTADO DE
-BUENOS AIRES, ETC.

@@ -1,5 +1,0 @@
-LEY 6012
-Presupuesto General para el Ejercicio Financiero 1959
-Primera Parte.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY

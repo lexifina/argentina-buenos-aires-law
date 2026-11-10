@@ -1,4 +1,0 @@
-LEY 10699
-Texto actualizado con la modificación introducida por la Ley 15078.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
-LEY

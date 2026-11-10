@@ -1,0 +1,4 @@
+LEY 5418
+Fomento de la pesca en las lagunas de la Provincia.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY

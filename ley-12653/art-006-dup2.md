@@ -1,1 +1,0 @@
-ARTÍCULO 6.- El directorio se compondrá de un (1) presidente designado de acuerdo al artículo 5 de la ley, un (1) vicepresidente, un (1) secretario y cuatro (4) vocales. En su primera reunión, el directorio designará de entre sus miembros un (1) vicepresidente y un (1) secretario.

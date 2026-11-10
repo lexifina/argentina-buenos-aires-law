@@ -1,0 +1,1 @@
+ARTICULO 50°: La ratificación no será necesaria cuando el denunciante sea un colegiado o esté patrocinado por éste, o cuando se trate de una comunicación de organismo colegial, magistrado judicial o repartición administrativa.

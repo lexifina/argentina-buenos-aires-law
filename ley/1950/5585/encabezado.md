@@ -1,0 +1,5 @@
+LEY 5585
+Erección de una estatua al General Artigas en La Plata.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES, SANCIONAN CON FUERZA DE
+LEY:

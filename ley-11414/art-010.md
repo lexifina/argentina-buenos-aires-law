@@ -1,1 +1,0 @@
-ARTICULO 10°: Régimen financiero: El CONSORCIO percibirá, administrará y dispondrá de sus recursos económicos y financieros, los que deberá aplicar exclusivamente al cumplimiento de su objeto y funciones, según lo determine su presupuesto anual y conforme lo previsto en el presente Estatuto, sobre la asignación de los resultados de los respectivos ejercicios económicos.

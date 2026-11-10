@@ -1,1 +1,0 @@
-Art. 1º) Obsérvase, en el proyecto de ley sancionado por la Honorable Legislatura, al que hace referencia el Visto del presente, en el artículo 28 bis, incorporado por su artículo 6º, la expresión: "el cumplimiento de sentencias".

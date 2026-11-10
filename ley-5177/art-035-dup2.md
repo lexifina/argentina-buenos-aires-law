@@ -1,2 +1,0 @@
-ARTICULO 35°: El previo pago de la cuota anual correspondiente en el Colegio donde se halle inscripto será regla general en los casos de pedido de pase a otro Colegio Departamental, debiendo entenderse como “cuota anual” la totalidad del monto que se hubiere fijado, aunque sea divisible el pago en cuotas.
-En caso de pedidos de pase de matriculación a otro Colegio Departamental, la cuota anual se dividirá entre ambos Colegios en forma proporcional, tomando como fecha de corte, aquélla de la solicitud de pase.

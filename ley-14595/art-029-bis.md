@@ -1,1 +1,0 @@
-Artículo 29 Bis: Sólo podrá expedirse copia del Acta originaria de nacimiento en las rectificaciones efectuadas conforme el CAPÍTULO II BIS IDENTIDAD DE GÉNERO del TÍTULO IX, a quines cuenten con la autorización del/la titular de la misma o con orden judicial por escrito y fundada.

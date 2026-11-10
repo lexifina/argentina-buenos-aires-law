@@ -1,3 +1,0 @@
-LEY 2589
-Subsidio a Tomasa Alem.
-EL SENADO Y CÁMARA DE DIPUTADOS, ETC.

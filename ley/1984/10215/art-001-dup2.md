@@ -1,0 +1,1 @@
+ARTICULO 1°: Este Convenio regirá la forma y condiciones que “CORRIENTES” ejecutará la obra “Mejoramiento, limpieza y rectificación del Canal Santa María desde el arroyo Riachuelo al río Paraná”, con la colaboración y apoyo técnico de “BUENOS AIRES”.---------------------------------------------------------------------------------------------

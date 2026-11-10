@@ -1,1 +1,0 @@
-ARTICULO 105°: El Consejo Directivo podrá resolver que la elección se anticipe a la sesión de la Asamblea, en cuyo caso los comicios serán abiertos por el Presidente del Colegio o su reemplazante legal.

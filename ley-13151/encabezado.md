@@ -1,4 +1,0 @@
-LEY 13151
-Texto actualizado con las modificaciones introducidas por Ley 13439.-
-EL SENADO Y CÁMARA DE DIPUTADOS DE LAPROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY

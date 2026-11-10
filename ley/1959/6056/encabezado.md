@@ -1,0 +1,4 @@
+LEY 6056
+Concesiones Areneras. Modificación del artículo 3 del decreto ley 4651/57
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY

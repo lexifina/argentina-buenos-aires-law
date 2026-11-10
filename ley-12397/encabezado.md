@@ -1,5 +1,0 @@
-LEY 12397
-Texto Actualizado con las modificaciones introducidas por Ley 12576, 13713, 14983 y 15007.
-Nota: Ver Ley 13244 artículo 9.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
-LEY

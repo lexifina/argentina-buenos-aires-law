@@ -1,0 +1,1 @@
+ARTICULO 1°: Apruébase el Contrato de Transferencia suscripto entre la Provincia de Buenos Aires y el Gobierno Nacional, representado por los Señores Ministros de Economía y Obras y Servicios Públicos y de Defensa, que como Anexo forma parte del presente.

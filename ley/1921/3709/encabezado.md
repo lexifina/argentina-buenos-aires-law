@@ -1,0 +1,5 @@
+LEY 3709
+Presupuesto de la Administración y Escuelas para mayo y junio de 1921.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA
+DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY

@@ -1,0 +1,5 @@
+LEY 4700
+Modificando la Ley número 4344 (Orgánica de la Caja Popular de Ahorros).
+EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES
+SANCIONAN CON FUERZA DE
+LEY

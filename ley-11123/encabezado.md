@@ -1,4 +1,0 @@
-LEY 11123
-Texto actualizado con las modificaciones introducidas por las Leyes 11.306 y 15078.
-EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
-LEY

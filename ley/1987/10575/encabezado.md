@@ -1,0 +1,4 @@
+LEY 10.575
+- Texto actualizado con las modificaciones introducidas por la Ley 11.106 -
+EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY

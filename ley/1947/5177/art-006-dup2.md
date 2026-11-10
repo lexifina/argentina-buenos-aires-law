@@ -1,0 +1,1 @@
+ARTICULO 6º: Cada Colegio Departamental remitirá al Colegio de la Provincia un duplicado de los registros que prepare, y el Colegio de la Provincia hará con ellos la clasificación general, a los efectos de lo dispuesto por el artículo 50°, inciso f), de la Ley.

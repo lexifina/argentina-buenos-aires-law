@@ -1,0 +1,1 @@
+ARTÍCULO 108 - Cuando se revocare la libertad condicional, la condenación condicional o la libertad asistida, por la comisión de un nuevo delito, el condenado ingresará o reingresará al Servicio Penitenciario bajo las condiciones del artículo 27, siguientes y concordantes.

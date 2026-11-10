@@ -1,0 +1,1 @@
+Art. 7º - A los efectos del apoyo funcional y económico-financiero de las Academias, éstas podrán constituir asociaciones cooperadoras u otros tipos de personas jurídicas civiles o simples asociaciones admitidas por el ordenamiento jurídico.

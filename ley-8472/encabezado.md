@@ -1,6 +1,0 @@
-DEROGADA POR DECRETO-LEY 9351/79
-LEY 8472
-Modificando el artículo 1º de la Ley 8138, modificatoria de la Ley 5827 (Orgánica del Poder Judicial).
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
-AIRES, SANCIONAN CON FUERZA DE
-LEY:

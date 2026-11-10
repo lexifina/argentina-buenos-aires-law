@@ -1,3 +1,0 @@
-LEY 12404
-Texto actualizado con las modificaciones introducidas por Ley 12596 y 13306.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE LEY

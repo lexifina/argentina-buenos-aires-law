@@ -1,5 +1,0 @@
-LEY 6783
-Donación de terreno al “Club Atlético Rivadavia”, de Necochea.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
-AIRES, SANCIONAN CON FUERZA DE
-LEY

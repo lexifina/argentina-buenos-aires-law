@@ -1,1 +1,0 @@
-ARTICULO 64 - La determinación de los medios de sujeción autorizados y su modo de empleo serán establecidos por la reglamentación que se dicte. Su aplicación no podrá prolongarse mas allá del tiempo necesario, bajo apercibimiento de las sanciones administrativas y penales que correspondan al funcionario responsable.

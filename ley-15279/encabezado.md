@@ -1,7 +1,0 @@
-LEY 15279
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
-LEY
-TÍTULO I
-RÉGIMEN DE REGULARIZACIÓN DE DEUDAS IMPOSITIVAS
-Capítulo I
-Régimen de regularización de deudas de contribuyentes y sus responsables solidarios

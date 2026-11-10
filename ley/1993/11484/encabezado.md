@@ -1,0 +1,4 @@
+LEY 11484
+Texto Actualizado con las modificaciones introducidas por Ley 11456.
+EL SENADO Y CÀMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY

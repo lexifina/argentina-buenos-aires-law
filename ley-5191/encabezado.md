@@ -1,4 +1,0 @@
-LEY 5191
-Monumento al ex Presidente Yrigoyen en La Plata (Erección).
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY:

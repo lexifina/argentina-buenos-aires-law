@@ -1,1 +1,0 @@
-Artículo 6º bis: (Incorporado por Ley 11.723) En caso de infracción a las normas cuyas materias se detallan en el artículo 4º bis, la pena de multa podrá ascender hasta la suma del triplo de la establecida como tope en el artículo 6º.

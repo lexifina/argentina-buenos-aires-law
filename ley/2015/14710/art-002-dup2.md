@@ -1,0 +1,1 @@
+ARTÍCULO 2º.- Los objetivos y finalidades del COMILU se encuentran determinados en el artículo 4 de la Ley de creación. Para el cumplimiento de esas finalidades el COMILU gozará de plena capacidad para actuar en las esferas del Derecho Público y Privado.

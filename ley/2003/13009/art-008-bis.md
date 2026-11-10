@@ -1,0 +1,1 @@
+ARTICULO 8° Bis.- (Artículo incorporado por Ley 13279) Exceptúese a la presente de los alcances del artículo 47° de la Ley 5.708 (T. O. Decreto 8.253/86); estableciéndose en cinco (5) años el plazo para considerar abandonada la expropiación respecto de los inmuebles objeto de esta norma.

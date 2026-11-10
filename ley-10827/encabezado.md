@@ -1,5 +1,0 @@
-LEY 10.827
-Texto Actualizado con las modificaciones introducidas por Ley 11970 y 14174.
-EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES
-SANCIONAN CON FUERZA DE
-LEY

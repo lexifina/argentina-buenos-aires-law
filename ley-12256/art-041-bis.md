@@ -1,3 +1,0 @@
-ARTÍCULO 41 bis: (Artículo Incorporado por Ley 14296) Los actos del interno que demuestren buena conducta, espíritu de trabajo, voluntad en el aprendizaje y sentido de responsabilidad en el comportamiento personal y en las actividades organizadas del establecimiento, serán estimulados mediante un sistema de recompensas.
-Sin perjuicio de lo que determine la reglamentación y salvo los casos del artículo 100 de la presente, el Juez de Ejecución o Juez competente podrá recompensar al condenado que tuviera conducta ejemplar con una rebaja en la pena a razón de diez (10) días por año de prisión o reclusión cumplida en los cuales haya efectivamente trabajado o estudiado.
-DISCIPLINA

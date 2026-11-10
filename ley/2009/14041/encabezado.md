@@ -1,0 +1,4 @@
+LEY 14041
+NOTA: Ver el Decreto 3237/11 que declara abandonada la presente expropiación.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY

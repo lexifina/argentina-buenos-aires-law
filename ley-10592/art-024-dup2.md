@@ -1,3 +1,0 @@
-ARTÍCULO 24 quáter.- (Texto incorporado por Ley 12614) La reglamentación indicará las características de las obligaciones establecidas, responsabilidad de los entes ejecutores, públicos o privados y de las reparticiones fiscalizadoras.
-Asimismo determinará las prioridades y plazos de las adecuaciones establecidas en los artículos 24 y 24 ter, pero su ejecución no podrá exceder del plazo de 30 meses desde la fecha de sanción de la presente ley.
-En toda obra nueva o de remodelación de edificios de vivienda, la aprobación de los planos requerirá imprescindiblemente la inclusión de los mismos de lo dispuesto en el artículo 24°, su reglamentación y las respectivas disposiciones municipales en la materia.

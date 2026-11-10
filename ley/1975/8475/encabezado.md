@@ -1,0 +1,5 @@
+LEY 8475
+Incrementando las remuneraciones de la H. Cámara de Diputados.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES, SANCIONAN CON FUERZA DE
+LEY:

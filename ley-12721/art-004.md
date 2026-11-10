@@ -1,1 +1,0 @@
-ARTICULO 4°.- Comuníquese al Poder Ejecutivo.

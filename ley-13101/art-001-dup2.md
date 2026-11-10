@@ -1,3 +1,0 @@
-Artículo 1º: Obsérvase en el proyecto de ley sancionado por la Honorable Legislatura con fecha 21 de agosto del año 2003, al que hace referencia el Visto del presente, lo siguiente:
-a) la expresión: ... "El juzgado contencioso administrativo del Departamento Judicial Mercedes tendrá su asiento en la ciudad de Salto", contenida en el artículo 14 de la Ley 12.074 y sus modificatorias, conforme la redacción dada por el artículo 60 de aquél;
-b) la expresión: ... "se suprimen los siguientes cargos ...", contenida en el inciso 3 del artículo 24 de la Ley 12.074 y sus modificatorias, conforme la redacción dada por el artículo 63 de aquél;

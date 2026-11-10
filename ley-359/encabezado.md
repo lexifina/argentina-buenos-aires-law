@@ -1,3 +1,0 @@
-LEY 359
-Contribución Directa para 1863.
-EL SENADO Y CÁMARA DE REPRESENTANTES, ETC.

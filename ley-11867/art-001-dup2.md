@@ -1,1 +1,0 @@
-Art. 1°: Obsérvase en el Art. 2° del proyecto sancionado por la Honorable Legislatura, en fecha 31 de octubre de 1996, al que hace referencia el Visto del presente, la expresión “conforme a lo normado en la Ley 11.459”.

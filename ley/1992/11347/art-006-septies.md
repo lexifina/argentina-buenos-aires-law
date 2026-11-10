@@ -1,0 +1,1 @@
+ARTÍCULO 6º septies: (Artículo Incorporado por Ley 15078) Los ingresos percibidos en concepto de multas, tasas y/o aranceles producto de la aplicación de la presente Ley, y su reglamentación, ingresarán y se destinarán a Rentas Generales.

@@ -1,3 +1,0 @@
-LEY 1059
-Pensión a Teodora Ferreyra.
-EL SENADO Y CÁMARA DE DIPUTADOS, ETC.

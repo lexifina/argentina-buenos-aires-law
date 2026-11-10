@@ -1,3 +1,0 @@
-ARTICULO 14°: Título ejecutivo: Los certificados de deuda que emita el CONSORCIO, debidamente firmados por el Presidente del Directorio y el Gerente General, o sus respectivos reemplazantes legales, por los distintos importes de los conceptos previstos en el artículo 8° del presente Estatuto, con mas sus acreencias serán título ejecutivo habilitante para reclamar el cobro de la deuda en juicio ejecutivo y facultarán al CONSORCIO para requerir judicialmente las medidas cautelares autorizadas por los Códigos y leyes procesales pertinentes, como así también, aquellas medidas cautelares previstas en la Ley de Navegación 20.094.
-CAPITULO VI
-DIRECTORIO

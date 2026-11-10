@@ -1,5 +1,0 @@
-LEY 11206
-Texto actualizado con las modificaciones introducidas por la Ley 13077.
-NOTA: Ver Ley 11672.
-EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
-LEY

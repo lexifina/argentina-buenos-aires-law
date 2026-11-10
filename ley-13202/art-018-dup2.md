@@ -1,1 +1,0 @@
-ARTICULO 18.- El Jefe de la Policía Buenos Aires 2 promoverá la articulación de la fuerza a su cargo en el marco de los procedimientos vinculados a la participación comunitaria a través de los Foros de Seguridad, previstos en la ley 12.154 de Seguridad Pública Provincial.

@@ -1,1 +1,0 @@
-ARTICULO 16°: Las deliberaciones de los Consejos Directivos y del Consejo Superior serán públicas, salvo decisión especial expresa y fundada adoptada por no menos de los dos tercios de miembros presentes.

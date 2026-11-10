@@ -1,4 +1,0 @@
-LEY 8105
-Elevando a la categoría de ciudad al actual pueblo de Suipacha.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
-LEY

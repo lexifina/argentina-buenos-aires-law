@@ -1,1 +1,0 @@
-ARTICULO 8: La Provincia reconoce y garantiza a la Iglesia Católica, Apostólica, Romana, el libre y público ejercicio de su culto. Las relaciones entre ésta y el Estado se basan en los principios de autonomía y cooperación. Igualmente garantiza a los demás cultos reconocidos su libre y público ejercicio.

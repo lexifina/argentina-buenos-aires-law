@@ -1,0 +1,3 @@
+LEY 448
+Pensión a Justo Díaz Gómez.
+EL SENADO Y CÁMARA DE REPRESENTANTES, ETC.

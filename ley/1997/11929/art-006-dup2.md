@@ -1,0 +1,4 @@
+ARTICULO 6° quáter : ( Incorporado por Ley 12.529 - Texto según Ley 15557) Créase la Unidad Evento Deportivo (UED) como unidad de cuenta para la determinación de las sanciones pecuniarias previstas en el Capítulo II del Título I de la presente Ley, exclusivamente respecto de las multas.Los montos expresados en pesos en los artículos 7°, 20°, 21°, 23° y 24° se convertirán a valores expresados en UED.
+La Unidad Evento Deportivo (UED) equivaldrá al diez por ciento (10%) del valor de la “entrada general” oficialmente publicada para los partidos de la Primera División de la Liga Profesional de Fútbol Argentino, o la competencia equivalente que la reemplace.
+El valor de la UED será determinado por el Ministerio de Seguridad de la Provincia de Buenos Aires, mediante resolución fundada, conforme a los parámetros establecidos en el presente artículo.
+CAPITULO II

@@ -1,3 +1,0 @@
-ARTICULO 20°: Prohibiciones e incompatibilidades: No podrán integrar el Directorio:
-a) Quienes con relación a otros Directores sean cónyuges, parientes por consanguinidad en línea recta, los colaterales hasta el cuarto grado inclusive y los afines dentro del segundo grado de parentesco.
-b) Los Directores en representación del sector privado no podrán tener empleo o cargo público, remunerado o no, de carácter electivo o no, en la Nación, Provincias, Municipalidades o entes autárquicos o empresas del Estado Nacionales, Provinciales, Municipales o mixtas excepto cargos docentes de nivel terciario o universitario.

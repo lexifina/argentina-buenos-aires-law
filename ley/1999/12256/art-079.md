@@ -1,0 +1,1 @@
+ARTICULO 79 - Serán internados en el Instituto Neuropsiquiátrico de Seguridad los imputados que se encuentren presuntamente comprendidos en el artículo 34 inciso 1) del Código Penal, cuya internación haya sido ordenada por el juez para verificar la existencia de una enfermedad mental

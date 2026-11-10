@@ -1,4 +1,0 @@
-LEY 13155
-Texto Actualizado con las modificaciones introducidas por la Ley 13242, 13850 y 14200.-
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY

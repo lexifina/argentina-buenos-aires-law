@@ -1,0 +1,4 @@
+LEY 4698
+Concesiones a título precario de ramblas, playas y riberas
+EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY

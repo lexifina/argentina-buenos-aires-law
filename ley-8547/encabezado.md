@@ -1,6 +1,0 @@
-DEROGADA POR LEY 9041
-LEY 8547
-Donando a la Municipalidad de Ramallo fracciones de tierra fiscal.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
-AIRES, SANCIONAN CON FUERZA DE
-LEY

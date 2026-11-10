@@ -1,1 +1,0 @@
-ARTÍCULO 120 bis. (Incorporado por Ley 15558) A fin de tener por cumplimentado el requisito de constitución de domicilio, de conformidad a lo dispuesto en el artículo anterior, se deberá constituir de manera obligatoria un domicilio electrónico, en los términos de la Ley N° 15.230 y su Decreto reglamentario N° 428/2021.

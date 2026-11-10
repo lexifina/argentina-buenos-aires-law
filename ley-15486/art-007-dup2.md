@@ -1,1 +1,0 @@
-ARTÍCULO 7.- Las reuniones del Directorio se celebrarán, por lo menos, dos (2) veces al año, por citación del presidente pudiéndose convocar a reuniones de carácter técnico y consultivo, con una frecuencia mensual; o extraordinariamente cuando lo disponga el Presidente o lo soliciten tres (3) miembros de Directorio.

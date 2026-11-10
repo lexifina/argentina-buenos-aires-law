@@ -1,0 +1,5 @@
+LEY 6950
+Servicios de aguas corrientes a la ciudad de San Antonio de Areco.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
+AIRES, SANCIONAN CON FUERZA DE
+LEY

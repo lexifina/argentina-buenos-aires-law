@@ -1,1 +1,0 @@
-ARTICULO 7.- En el supuesto previsto en el artículo anterior, se ingresará mediante concurso público de oposición, antecedentes y entrevista personal, de acuerdo a una convocatoria de cobertura de cargo efectuada por el Ministerio de Seguridad, a través de la Subsecretaría de Formación y Capacitación, conforme a las competencias elementales y específicas del cargo a cubrir.

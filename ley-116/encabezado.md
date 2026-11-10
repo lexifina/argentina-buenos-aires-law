@@ -1,4 +1,0 @@
-Ley 116
-Pension a la viuda de Miguel E. Soler.
-EL SENADO Y CAMARA DE REPRESENTANTES DEL
-ESTADO DE BUENOS AIRES, ETC.

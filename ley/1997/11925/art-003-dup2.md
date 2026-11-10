@@ -1,0 +1,1 @@
+ARTICULO 3.- Obsérvase en el artículo primero de la iniciativa legislativa que se menciona anteriormente, en la sustitución del artículo 61 de la Ley 8.271 en el inciso f), la palabra "Exclusivamente".

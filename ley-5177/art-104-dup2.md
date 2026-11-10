@@ -1,1 +1,0 @@
-ARTICULO 104°: Corresponde a los Consejos Directivos adoptar las medidas necesarias para la organización del acto electoral y resolver los problemas que se planteen, informando en su oportunidad al Consejo Superior.

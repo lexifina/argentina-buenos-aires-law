@@ -1,4 +1,0 @@
-LEY 5547
-Modificación de la Ley 5303, de Plan Complementario de Viviendas.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY

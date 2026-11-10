@@ -1,1 +1,0 @@
-Artículo 50: Los Juzgados de Primera Instancia en lo Civil y Comercial ejercerán su jurisdicción en todas las causas de las materias Civil, comercial y rural de orden voluntario o contradictorio, con excepción de la que corresponde a los Juzgados de Familia y Juzgados de Paz.

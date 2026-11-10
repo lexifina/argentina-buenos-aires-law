@@ -1,1 +1,0 @@
-ARTICULO 113 - El Servicio Penitenciario a través del establecimiento de egreso, coincidentemente con la liberación, remitirá al Patronato de Liberados el acta de libertad, la planilla de antecedentes penales y toda documentación que hubiera quedado pendiente de entrega al liberado.

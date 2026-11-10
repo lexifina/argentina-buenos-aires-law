@@ -1,1 +1,0 @@
-ARTICULO 6.- Los importes correspondientes a cuotas de ejercicio profesional cuyos vencimientos han operado con anterioridad a la entrada en vigencia de la presente, serán liquidados conforme al mecanismo establecido en la ley vigente a la fecha de la mora.

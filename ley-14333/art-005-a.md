@@ -1,1 +1,0 @@
-ARTÍCULO 5º - A los efectos de establecer la base imponible para la determinación del impuesto Inmobiliario correspondiente a la Planta Urbana Edificada, se deberá aplicar un coeficiente de cero con sesenta y cinco (0,65) sobre la valuación fiscal asignada de conformidad a lo dispuesto en la Ley Nº 10.707, modificatorias y complementarias.

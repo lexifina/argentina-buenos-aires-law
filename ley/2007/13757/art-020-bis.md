@@ -1,0 +1,14 @@
+ARTÍCULO 20 bis.- (Artículo Incorporado por Ley 13881) Le corresponde al Ministerio de Asuntos Agrarios, asistir al Gobernador de la Provincia en la determinación de las políticas conducentes al ordenamiento, promoción y desarrollo de las actividades agropecuarias y pesqueras. En particular le compete:
+1. Promover la producción agropecuaria, proponer las políticas que favorezcan el sector, realizar la fiscalización sanitaria y el control de calidad y del comercio de los productos agropecuarios.
+2. Elaborar, ejecutar y fiscalizar los regímenes que promueven y regulan las actividades de los sectores agropecuario, forestal y de caza.
+3. Participar en la elaboración, aplicación y fiscalización del régimen general de la tierra rural y en la administración y colonización de tierras fiscales, en coordinación con otros organismos de aplicación.
+4. Intervenir en el otorgamiento de los certificados de origen y calidad de los productos destinados a la exportación, en la materia de su competencia.
+5. Promover la conservación, recuperación y aprovechamiento de los bosques y el mejoramiento y aumento del patrimonio forestal.
+6. Intervenir en las políticas tendientes al control de las enfermedades y plagas que afecten a la producción agropecuaria y realizar el control y fiscalización higiénica, sanitaria y bromatológica de sus productos, durante el proceso de su producción, elaboración, distribución, depósito, transporte y comercialización, en coordinación con otros organismos con competencias concurrentes.
+7. Promover, fiscalizar y fomentar la producción pesquera y proponer la reglamentación y regulación de las actividades del sector pesquero. Proponer el representante del Poder Ejecutivo Provincial ante el Consejo Federal Pesquero.
+8. Elaborar, planificar y ejecutar proyectos y acciones vinculadas con la producción y fiscalización de las actividades hortícolas, frutícolas y florales interviniendo en el otorgamiento de los certificados de origen y calidad.
+9. Intervenir en las relaciones y participación de la Provincia en la Corporación del Mercado Central de Buenos Aires y demás organizaciones concentradoras de productos.
+10. (OBSERVADO) Intervenir en la creación y mantenimiento de parques provinciales, reservas faunísticas o ecológicas y áreas naturales protegidas, en coordinación con otras áreas con competencias concurrentes, incluyéndose los programas y proyectos vinculados a la administración, conservación y control del parque Pereyra Iraola”.
+11. Elaborar, ejecutar y fiscalizar el régimen de localización y radicación de establecimientos agropecuarios.
+· El inciso 10) se encuentra OBSERVADO por el Decreto de promulgación Nº 2426/08 de la Ley 13881.
+MINISTERIO DE SALUD

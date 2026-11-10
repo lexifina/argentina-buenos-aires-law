@@ -1,4 +1,0 @@
-LEY 12.577
-Texto actualizado con las moldificaciones introducidas por la Ley 12976.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES,
-SANCIONAN CON FUERZA DE LEY

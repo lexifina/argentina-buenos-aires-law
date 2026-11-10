@@ -1,4 +1,0 @@
-LEY 13961
-NOTA: Ver el Decreto 3242/11, que declara abandonada la presente expropiación.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
-LEY

@@ -1,2 +1,0 @@
-ARTÍCULO 184 quinqués. (Artículo incorporado por Ley 15079) (Texto según Ley 15558) El gravamen que resulte de la aplicación del artículo 184 bis estará a cargo del prestatario, como responsable sustituto del sujeto prestador no residente en el país.
-Cuando las prestaciones de servicios aludidas en el artículo citado sean pagadas por intermedio de entidades del país que faciliten o administren los pagos al exterior, estas actuarán como agentes de liquidación e ingreso del impuesto, conforme lo establezca la reglamentación.

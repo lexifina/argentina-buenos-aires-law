@@ -1,3 +1,0 @@
-LEY 1573
-Límites entre General Alvear y Bolívar.
-EL SENADO Y CÁMARA DE DIPUTADOS DEL ESTADO DE BUENOS AIRES, ETC.

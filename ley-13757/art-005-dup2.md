@@ -1,1 +1,0 @@
-Artículo 5°.- La Escribanía General de Gobierno depende jerárquica y funcionalmente del Ministerio de Justicia.

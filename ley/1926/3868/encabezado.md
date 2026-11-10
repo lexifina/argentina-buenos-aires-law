@@ -1,0 +1,4 @@
+LEY 3868
+Inspección, control y registro de medicamentos veterinarios
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
+LEY

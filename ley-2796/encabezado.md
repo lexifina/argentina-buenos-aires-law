@@ -1,5 +1,0 @@
-LEY 2796
-NOTA: Ver Ley 3402.
-Prohibición de los juegos de azar.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS
-AIRES, ETC.

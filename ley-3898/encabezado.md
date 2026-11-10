@@ -1,4 +1,0 @@
-LEY 3898
-Construcción de dos pabellones en el hospital de Las Flores.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
-LEY

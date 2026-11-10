@@ -1,4 +1,0 @@
-LEY 12918
-Texto actualizado con las modificaciones introducidas por Ley 15460
-EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
-LEY

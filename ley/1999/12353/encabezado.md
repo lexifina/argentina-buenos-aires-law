@@ -1,0 +1,4 @@
+LEY 12353
+Texto Actualizado con las modificaciones introducidas por Ley 15195.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONA CON FUERZA DE
+LEY

@@ -1,0 +1,1 @@
+ARTICULO 4º: Cada Colegio Departamental comunicará al Colegio de la Provincia las inscripciones que efectúe, con indicación de los datos personales y profesionales de los inscriptos, como asimismo las que rechace. El Consejo Superior, a su vez, las comunicará a los Colegios Departamentales mediante circular.

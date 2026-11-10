@@ -1,0 +1,4 @@
+LEY 157
+Pensión a la viuda e hijos de Enrique Pizarro.
+El SENADO Y CÁMARA DE REPRESENTANTES
+DEL ESTADO DE BUENOS AIRES, ETC.

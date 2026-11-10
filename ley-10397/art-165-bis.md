@@ -1,1 +1,0 @@
-ARTÍCULO 165 BIS. (Artículo incorporado por Ley 14983) A los efectos de promover medidas conducentes al cumplimiento voluntario de las obligaciones fiscales y la equidad tributaria, la Agencia de Recaudación podrá aplicar las categorías representativas de los distintos niveles de riesgo fiscal a todos sus procedimientos, incluyendo aquellos que se sustancien en forma digital.

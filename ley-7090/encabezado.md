@@ -1,4 +1,0 @@
-LEY 7090
-Modificación del Artículo 92 de la Ley Orgánica de las Municipalidades.
-EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
-LEY

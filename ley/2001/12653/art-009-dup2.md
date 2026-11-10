@@ -1,0 +1,1 @@
+ARTÍCULO 9.- El Presidente tendrá voto, el que se computará doble voto en caso de empate. Para el tratamiento de reconsideraciones, se requerirá el voto favorable de los dos (2) tercios de los presentes, y se sustanciará en otra reunión constituida con igual o mayor número de asistentes que aquella en la que se adoptó la resolución a reconsiderar.

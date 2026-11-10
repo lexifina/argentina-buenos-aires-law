@@ -1,1 +1,0 @@
-ARTÍCULO 2.- Cúmplase, comuníquese, publíquese, dése al Registro y “Boletín Oficial” y archívese.

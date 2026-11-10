@@ -1,0 +1,4 @@
+LEY 248
+Excepciones en la milicia.
+NOTA: Ver Ley 256 .
+EL SENADO Y CÁMARA DE DIPUTADOS DEL ESTADO DE BUENOS AIRES, ETC.

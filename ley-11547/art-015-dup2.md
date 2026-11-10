@@ -1,2 +1,0 @@
-ARTICULO 15°: IMPUESTOS Y CONTRIBUCIONES:
-Tendiendo en cuenta que la Provincia no debe abonar canon alguno por el uso de la infraestructura de bienes dados en Concesión se acuerda que todo impuesto, contribución o gravamen provincial o municipal o tasas de servicios que pudieran recaer a partir de la Toma de Posesión Provisoria, sobre Activos afectados al Servicio o sobre la operación del servicio será soportado por la Provincia.

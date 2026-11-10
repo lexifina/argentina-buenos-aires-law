@@ -1,0 +1,4 @@
+LEY 3667
+(Modificando la Ley número 3617) Departamento Judicial del Sudoeste.
+EL SENADO Y CÁMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES, SANCIONAN CON FUERZA DE
+LEY:

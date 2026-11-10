@@ -1,1 +1,0 @@
-ARTICULO 46.- Para cada cargo, grado y nivel se establecerán los desempeños esperados de acuerdo a las competencias elementales previstas en el artículo 49 y las específicas que estipule el Ministerio de Seguridad.

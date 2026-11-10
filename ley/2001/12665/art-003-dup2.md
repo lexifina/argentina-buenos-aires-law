@@ -1,0 +1,1 @@
+Artículo 3º.- El procedimiento a aplicar a nivel provincial y municipal es el establecido en la Ley Provincial 13.133, Código Provincial de Implementación de los Derechos de los Consumidores y Usuarios, Título VIII, Capítulo IV, de Procedimiento Administrativo de las normas de aplicación, y Capítulo V de las Sanciones.

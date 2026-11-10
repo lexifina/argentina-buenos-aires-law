@@ -1,0 +1,1 @@
+ARTICULO 83°: El Consejo Directivo elaborará el Orden del Día, que comprenderá, obligatoriamente, la consideración de la Memoria y Balance del último ejercicio y, periódicamente, la elección de autoridades, sin perjuicio de los demás asuntos que estime necesario incluir dentro de las directivas del artículo 38° de la Ley.

@@ -1,1 +1,0 @@
-ARTICULO 1°.- Obsérvase en el artículo 1° del proyecto de ley sancionado por la Honorable Legislatura, con fecha 19 de abril del corriente año, al que hace referencia el Visto del presente, la siguiente expresión: “…, identificado catastralmente como: CIRCUNSCRIPCION I, SECCION B, MANZANA 512, del partido de Dolores”.

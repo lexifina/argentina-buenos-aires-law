@@ -1,4 +1,0 @@
-LEY 11852
-Texto Actualizado con las modificaciones introducidas por la Ley 12201
-EL SENADO Y CAMARA DE DIPUTADOS DE LA PROVINCIA DE BUENOS AIRES SANCIONAN CON FUERZA DE
-LEY

@@ -1,0 +1,3 @@
+LEY 128
+Sucesiones intestadas entre cónyuges.
+EL SENADO Y CAMARA DE REPRESANTES DEL ESTADO DE BUENOS AIRES, ETC.

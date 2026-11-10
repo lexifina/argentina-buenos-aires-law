@@ -1,0 +1,2 @@
+ARTÍCULO 3°: Modifícase el artículo 7° de la Ley N° 10.499 y modificatorias -Declarando de Interés Provincial Estudios de Prevención, Tratamiento e Investigación de Enfermedad Celíaca-, el que quedará redactado de la siguiente forma:
+“Artículo 7°: A aquellos comercios y empresas que no den cumplimiento a lo dispuesto en los artículos 5, 5 bis y 6 de la presente Ley, se les impondrá una multa y en casos de incumplimientos reiterados, se dispondrá la clausura de hasta cinco (5) días del establecimiento o empresa comercial.”

@@ -1,3 +1,0 @@
-LEY 2423
-Límites del Partido de Florencio Varela.
-EL SENADO Y CÁMARA DE DIPUTADOS DEL ESTADO DE BUENOS AIRES, ETC.
